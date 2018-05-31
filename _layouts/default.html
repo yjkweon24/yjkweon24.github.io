@@ -1,37 +1,39 @@
 <!DOCTYPE html>
-  <html>
+	<html lang="en">
 		<head>
 			<title>{{ page.title }}</title>
 			<!-- link to main stylesheet -->
 			<link rel="stylesheet" type="text/css" href="/css/main.css">
 		</head>
-    <body>
-      <nav>
-        <ul>
-          <li><a href="/">Home</a></li>
-          <li><a href="/cv">CV</a></li>
-          <li><a href="/researchprojects">Research/Projects</a></li>
-          <li><a href="/teaching">Teaching</a></li>
-          <li><a href="/coursework">Coursework</a></li>
-          <li><a href="/publication">Publication</a></li>
-          <li><a href="/coursework">Contact</a></li>
-        </ul>
-      </nav>
+    		<body>
+			<section class="page-header"> 
+			<nav>
+				<ul>
+				  <li><a href="/">Home</a></li>
+				  <li><a href="/cv">CV</a></li>
+				  <li><a href="/researchprojects">Research/Projects</a></li>
+				  <li><a href="/teaching">Teaching</a></li>
+				  <li><a href="/coursework">Coursework</a></li>
+				  <li><a href="/publication">Publication</a></li>
+				  <li><a href="/coursework">Contact</a></li>
+				</ul>
+		      	</nav>
+			</section>
 			<div class="container">
 			
 			{{ content }}
 			
 			</div><!-- /.container -->
-      <footer class="footer">
-        <ul>
-          <li><a href="mailto:yjkweon24@berkeley.edu">email1</a> or <a href="mailto:yong.kweon@mail.mcgill.ca">email2</a></li>
-        </ul>
-        <small>
-          &copy; <time datetime="{{ site.time | date_to_xmlschema }}">{{ site.time | date: '%Y%M' }}</time>. All rights reserved.
-        </small>
-      </footer>
-    </body>
-  </html>
+		      	<footer class="footer">
+				<ul>
+			  		<li><a href="mailto:yjkweon24@berkeley.edu">email1</a> or <a href="mailto:yong.kweon@mail.mcgill.ca">email2</a></li>
+				</ul>
+				<small>
+			  		&copy; <time datetime="{{ site.time | date_to_xmlschema }}">{{ site.time | date: '%Y' }}</time>. All rights reserved.
+				</small>
+		      </footer>
+  		</body>
+  	</html>
 
     
    
