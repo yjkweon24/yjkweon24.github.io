@@ -1,3 +1,5 @@
-theme: jekyll-theme-cayman
-title: Jin Kweon
-description: welcome
+name: Jin Kweon
+markdown: kramdown
+permalink: /blog/:year/:month/:day/:title
+
+theme: jekyll-theme-slate
