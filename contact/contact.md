@@ -1,7 +1,7 @@
 ## Jin Kweon
 
 
-Tel: 925-285-7926
+* Tel: 925-285-7926
 
 * Email1: yjkweon24[at]berkeley[dot]edu 
 
