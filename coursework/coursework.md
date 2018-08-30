@@ -3,9 +3,12 @@
 
 * BIOL 219: Intro to Physical Biology of the Cell
 
-* BIw9: Intro to Physical Biology of the Cell
+* QLSC 600D1: Foundations of Quantitative Life Sciences
 
-* BIOLwe 219: Intro to Physical Biology of the Cell
+* CEFN 102: Basic French
+
+* COMP 551: Applied Machine Learning (audit)
+
 
 <br>
 
