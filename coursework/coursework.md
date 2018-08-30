@@ -3,9 +3,9 @@
 
 * BIOL 219: Intro to Physical Biology of the Cell
 
-* BIOL 219: Intro to Physical Biology of the Cell
+* BIw9: Intro to Physical Biology of the Cell
 
-* BIOL 219: Intro to Physical Biology of the Cell
+* BIOLwe 219: Intro to Physical Biology of the Cell
 
 <br>
 
