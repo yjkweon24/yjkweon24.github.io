@@ -6,7 +6,7 @@ title: Contact
 ## Jin Kweon
 
 
-* Tel: 925-285-7926
+* Tel: 514-690-7926
 
 * Email1: yjkweon24[at]berkeley[dot]edu 
 
@@ -17,6 +17,8 @@ title: Contact
 * Email4: yjkweon24[at]gmail[dot]com
 
 * Linkedin: [https://www.linkedin.com/in/yong-jin-kweon-5b687a103/](https://www.linkedin.com/in/yong-jin-kweon-5b687a103/)
+
+* Wix website: [https://yjkweon24.wixsite.com/yongjinkweon](https://yjkweon24.wixsite.com/yongjinkweon)
 
 * Github: [https://github.com/yjkweon24](https://github.com/yjkweon24)
 
