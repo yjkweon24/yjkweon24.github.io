@@ -5,8 +5,6 @@
 
 * QLSC 600D1: Foundations of Quantitative Life Sciences
 
-* CEFN 102: Basic French
-
 * COMP 551: Applied Machine Learning (audit)
 
 
