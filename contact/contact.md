@@ -16,7 +16,7 @@ title: Contact
 
 * Email4: yjkweon24[at]gmail[dot]com
 
-* Linkedin: [https://www.linkedin.com/in/yong-jin-kweon-5b687a103/](https://www.linkedin.com/in/yong-jin-kweon-5b687a103/)
+* Linkedin: [https://www.linkedin.com/in/jin-kweon-5b687a103/](https://www.linkedin.com/in/jin-kweon-5b687a103/)
 
 * Wix website: [https://yjkweon24.wixsite.com/yongjinkweon](https://yjkweon24.wixsite.com/yongjinkweon)
 
