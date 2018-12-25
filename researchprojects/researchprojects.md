@@ -9,6 +9,8 @@ title: Research/Projects
 
 [Prof. Baillet's Publications](https://scholar.google.ca/citations?hl=en&user=5GTopjMAAAAJ&view_op=list_works&sortby=pubdate)
 
+[Presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin.pptx)
+
 <br>
 
 <br>
