@@ -3,7 +3,17 @@ layout: default
 title: Research/Projects
 ---
 
-## Research under Professor Sylvain Baillet (Sep 18 - Present)
+## Research under Professor Guillaume Bourque (Dec 18 - Present)
+
+[Prof. Bourque's Website](http://www.computationalgenomics.ca/BourqueLab/)
+
+[Prof. Bourque's Publications](https://scholar.google.com/citations?hl=en&user=Et_RonIAAAAJ&view_op=list_works&sortby=pubdate)
+
+<br>
+
+<br>
+
+## Research under Professor Sylvain Baillet (Sep 18 - Dec 18)
 
 [Prof. Baillet's Website](https://www.mcgill.ca/bic/research/neurospeed-neural-dynamics-brain-systems-baillet)
 
@@ -17,7 +27,8 @@ title: Research/Projects
 
 ## Research under Professor Philip Stark (Feb 18 - May 18)
 
-Details to be updated...
+[Prof. Stark's Website](https://www.stat.berkeley.edu/~stark/)
+[Prof. Stark's Publications](https://scholar.google.com/citations?hl=en&user=5EMVIoEAAAAJ&view_op=list_works&sortby=pubdate)
 
 <br>
 
@@ -25,20 +36,28 @@ Details to be updated...
 
 ## Research under Professor Rasmus Nielsen (May 17 - Nov 17)
 
-Details to be updated...
+[Prof. Nielsen's Website](http://www.nielsenlab.org/)
+[Prof. Nielsen's Publications](https://scholar.google.com/citations?hl=en&user=PySbfcEAAAAJ&view_op=list_works&sortby=pubdate)
 
 <br>
 
 <br>
 
-## Research under Professor Heather Haveman (Feb 17 - Dec 17)
+## Research under Professor Heather Haveman and Jaren Haber (Feb 17 - Dec 17)
 
-Details to be updated...
+[Prof. Haveman's Website](http://www.heatherhaveman.net/home.html)
+[Prof. Haveman's Publications](https://scholar.google.com/citations?hl=en&user=DmZVKkgAAAAJ&view_op=list_works&sortby=pubdate)
+[Jaren Haber's Website](https://sociology.berkeley.edu/graduate-student/jaren-r-haber)
 
 <br>
 
 <br>
 
-## Research under Professor Daniel Kammen (Sep 16 - Dec 16)
+## Research under Professor Daniel Kammen and Sergio Rodriguez (Sep 16 - Dec 16)
 
-Details to be updated...
+[Prof. Kammen's Website](http://kammen.berkeley.edu/)
+[Prof. Kammen's Publications](https://scholar.google.com/citations?hl=en&user=dzoa18QAAAAJ&view_op=list_works&sortby=pubdate)
+
+
+
+
