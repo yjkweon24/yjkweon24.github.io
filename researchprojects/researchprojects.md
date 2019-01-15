@@ -3,11 +3,11 @@ layout: default
 title: Research/Projects
 ---
 
-## Research under Professor Guillaume Bourque (Dec 18 - Present)
+## Research under Professor Jeff Xia (Jan 19 - May 19)
 
-[Prof. Bourque's Website](http://www.computationalgenomics.ca/BourqueLab/)
+[Prof. Xia's Website](http://xialab.ca/)
 
-[Prof. Bourque's Publications](https://scholar.google.com/citations?hl=en&user=Et_RonIAAAAJ&view_op=list_works&sortby=pubdate)
+[Prof. Xia's Publications](https://scholar.google.com/citations?hl=en&user=v7O1ib0AAAAJ&view_op=list_works&sortby=pubdate)
 
 <br>
 
