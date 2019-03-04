@@ -1,5 +1,8 @@
 # Coursework at McGill 
 
+* BINF 531: Statistical Bioinformatics
+
+* QLSC 600D2: Foundations of Quantitative Life Sciences II
 
 * BIOL 219: Intro to Physical Biology of the Cell
 
