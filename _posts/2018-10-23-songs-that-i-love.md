@@ -17,6 +17,8 @@ Tupac - [Life goes on](https://www.youtube.com/watch?v=W69SSLfRJho)
 
 Tupac - [Dear Mama](https://www.youtube.com/watch?v=Mb1ZvUDvLDY)
 
+<br>
+
 ## B
 
 B.O.B and Eminem - [Airplanes](https://www.youtube.com/watch?v=bMgIzcMSpGM)
@@ -32,6 +34,8 @@ Eminem - [Till I collapse](https://www.youtube.com/watch?v=ikKUceLXdt8&start_rad
 Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
 
 Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjafTc)
+
+<br>
 
 ## C
 
