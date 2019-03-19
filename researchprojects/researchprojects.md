@@ -9,6 +9,8 @@ title: Research/Projects
 
 [Prof. Xia's Publications](https://scholar.google.com/citations?hl=en&user=v7O1ib0AAAAJ&view_op=list_works&sortby=pubdate)
 
+[Presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin2.pptx)
+
 <br>
 
 <br>
