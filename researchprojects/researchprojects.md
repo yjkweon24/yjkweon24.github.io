@@ -11,6 +11,9 @@ title: Research/Projects
 
 [Presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin2.pptx)
 
+[Omics Integration journal presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin3.pptx)
+
+
 <br>
 
 <br>
