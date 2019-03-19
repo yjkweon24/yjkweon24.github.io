@@ -46,6 +46,7 @@ ul.posts li {
 .column {
   float: left;
   padding: 3px;
+  width: 45%;  
 }
 
 .row::after {
