@@ -17,6 +17,8 @@ Tupac - [Life goes on](https://www.youtube.com/watch?v=W69SSLfRJho)
 
 Tupac - [Dear Mama](https://www.youtube.com/watch?v=Mb1ZvUDvLDY)
 
+Eminem - [Listen to your heart](https://www.youtube.com/watch?v=hGDOEQHBt6Q)
+
 <br>
 
 ## B
@@ -39,6 +41,10 @@ Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjaf
 
 ## C
 
+Dr. Dre et al - [Forgot about Dre](https://www.youtube.com/watch?v=QFcv5Ma8u8k)
+
+Dr. Dre et al - [Kush](https://www.youtube.com/watch?v=BuJDaOVz2qY)
+
 Eminem and Lil Wayne - [No love](https://www.youtube.com/watch?v=KV2ssT8lzj8)
 
 Eminem et al - [Detroit Vs. Everybody](https://www.youtube.com/watch?v=hCdgDxQbW_U)
@@ -53,6 +59,14 @@ Yelawolf - [Best friend](https://www.youtube.com/watch?v=kHRU0TvB42c)
 
 Dr. Dre et al - [The next episode](https://www.youtube.com/watch?v=QZXc39hT8t4)
 
+Dr. Dre et al - [Still](https://www.youtube.com/watch?v=_CL6n0FJZpk)
+
+Dr. Dre et al - [The next episode](https://www.youtube.com/watch?v=QZXc39hT8t4)
+
 Jay Z and Alicia Keys - [Empire state of mind](https://www.youtube.com/watch?v=an3UERXQv2s)
 
 Twenty one pilots - [Heathens](https://www.youtube.com/watch?v=UprcpdwuwCg)
+
+K.Will - [Talk love](https://www.youtube.com/watch?v=pZeMWj2Hpd0)
+
+Mad Clown and Kim Na Young - [Once again](https://www.youtube.com/watch?v=RwFi7wnH5W0)
