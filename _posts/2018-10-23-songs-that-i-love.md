@@ -37,6 +37,8 @@ Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
 
 Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjafTc)
 
+Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
+
 <br>
 
 ## C
@@ -44,6 +46,8 @@ Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjaf
 Dr. Dre et al - [Forgot about Dre](https://www.youtube.com/watch?v=QFcv5Ma8u8k)
 
 Dr. Dre et al - [Kush](https://www.youtube.com/watch?v=BuJDaOVz2qY)
+
+Eminem et al - [Crack a bottle](https://www.youtube.com/watch?v=7L6qSHJrcl8)
 
 Eminem and Lil Wayne - [No love](https://www.youtube.com/watch?v=KV2ssT8lzj8)
 
