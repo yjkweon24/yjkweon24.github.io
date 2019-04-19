@@ -19,6 +19,8 @@ Tupac - [Dear Mama](https://www.youtube.com/watch?v=Mb1ZvUDvLDY)
 
 Eminem - [Listen to your heart](https://www.youtube.com/watch?v=hGDOEQHBt6Q)
 
+Eminem - [Stronger than I was](https://www.youtube.com/watch?v=iZtzWLoS60w)
+
 <br>
 
 ## B
