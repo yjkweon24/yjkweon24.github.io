@@ -21,6 +21,16 @@ Eminem - [Listen to your heart](https://www.youtube.com/watch?v=hGDOEQHBt6Q)
 
 Eminem - [Stronger than I was](https://www.youtube.com/watch?v=iZtzWLoS60w)
 
+Eminem - [Legacy](https://www.youtube.com/watch?v=FF1hjJYuqXU)
+
+Soyou - [I miss you](https://www.youtube.com/watch?v=Ol2zQeX0pxY)
+
+Davichi - [This love](https://www.youtube.com/watch?v=CtzT-Z5UUgA)
+
+Eminem - [Rock bottom](https://www.youtube.com/watch?v=h-3CmKofKTU)
+
+Eminem - [Mocking bird](https://www.youtube.com/watch?v=S9bCLPwzSC0)
+
 <br>
 
 ## B
@@ -41,6 +51,16 @@ Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjaf
 
 Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
 
+Eminem - [Cold wind blows](https://www.youtube.com/watch?v=c4Yz9o5UtN8)
+
+Eminem - [Still don't give a fuck](https://www.youtube.com/watch?v=y9FBhlL3NZE)
+
+Eminem - [Say goodbye hollywood](https://www.youtube.com/watch?v=PKvqIFTCVYw)
+
+Eminem - [8 mile](https://www.youtube.com/watch?v=-T5I__Jdl3w)
+
+Eminem - [Like toy soldiers](https://www.youtube.com/watch?v=lexLAjh8fPA)
+
 <br>
 
 ## C
@@ -48,6 +68,12 @@ Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
 Dr. Dre et al - [Forgot about Dre](https://www.youtube.com/watch?v=QFcv5Ma8u8k)
 
 Dr. Dre et al - [Kush](https://www.youtube.com/watch?v=BuJDaOVz2qY)
+
+Eminem - [Without me](https://www.youtube.com/watch?v=YVkUvmDQ3HY)
+
+Eminem - [White America](https://www.youtube.com/watch?v=PKvqIFTCVYw)
+
+Eminem - [Kill you](https://www.youtube.com/watch?v=D1I1x2pYMK0)
 
 Eminem et al - [Crack a bottle](https://www.youtube.com/watch?v=7L6qSHJrcl8)
 
@@ -67,8 +93,6 @@ Dr. Dre et al - [The next episode](https://www.youtube.com/watch?v=QZXc39hT8t4)
 
 Dr. Dre et al - [Still](https://www.youtube.com/watch?v=_CL6n0FJZpk)
 
-Dr. Dre et al - [The next episode](https://www.youtube.com/watch?v=QZXc39hT8t4)
-
 Jay Z and Alicia Keys - [Empire state of mind](https://www.youtube.com/watch?v=an3UERXQv2s)
 
 Twenty one pilots - [Heathens](https://www.youtube.com/watch?v=UprcpdwuwCg)
@@ -76,3 +100,9 @@ Twenty one pilots - [Heathens](https://www.youtube.com/watch?v=UprcpdwuwCg)
 K.Will - [Talk love](https://www.youtube.com/watch?v=pZeMWj2Hpd0)
 
 Mad Clown and Kim Na Young - [Once again](https://www.youtube.com/watch?v=RwFi7wnH5W0)
+
+Jay Z and Alicia Keys - [Empire state of mind](https://www.youtube.com/watch?v=an3UERXQv2s)
+
+Eminem - [The way I am](https://www.youtube.com/watch?v=mQvteoFiMlg)
+
+
