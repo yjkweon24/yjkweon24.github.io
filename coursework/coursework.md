@@ -2,10 +2,6 @@
 
 * BINF 531: Statistical Bioinformatics
 
-[Report](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/coursework/Report.pdf)
-
-[Presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/coursework/Presentation.pdf)
-
 * QLSC 600D2: Foundations of Quantitative Life Sciences II
 
 * BIOL 219: Intro to Physical Biology of the Cell
