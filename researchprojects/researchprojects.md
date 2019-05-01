@@ -5,6 +5,8 @@ title: Research/Projects
 
 ## Research under Professor Jeff Xia (Jan 19 - May 19)
 
+[MultiOmicsAnalyst Website](https://www.multiomics.ca/)
+
 [Prof. Xia's Website](http://xialab.ca/)
 
 [Prof. Xia's Publications](https://scholar.google.com/citations?hl=en&user=v7O1ib0AAAAJ&view_op=list_works&sortby=pubdate)
