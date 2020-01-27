@@ -31,6 +31,14 @@ Eminem - [Rock bottom](https://www.youtube.com/watch?v=h-3CmKofKTU)
 
 Eminem - [Mocking bird](https://www.youtube.com/watch?v=S9bCLPwzSC0)
 
+Dax - [Dear God](https://www.youtube.com/watch?v=nzCIeNhw8oE)
+
+Maroon 5 - [Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
+
+NF - [The search](https://www.youtube.com/watch?v=fnlJw9H0xAM)
+
+임재범 - [독종](https://www.youtube.com/watch?v=VV6dsi8NxNQ)
+
 <br>
 
 ## B
@@ -60,6 +68,20 @@ Eminem - [Say goodbye hollywood](https://www.youtube.com/watch?v=PKvqIFTCVYw)
 Eminem - [8 mile](https://www.youtube.com/watch?v=-T5I__Jdl3w)
 
 Eminem - [Like toy soldiers](https://www.youtube.com/watch?v=lexLAjh8fPA)
+
+NF - [Intro](https://www.youtube.com/watch?v=V9dIVtoxIyo)
+
+Eminem - [Sing for the moment](https://www.youtube.com/watch?v=D4hAVemuQXY)
+
+Lauv - [Changes](https://www.youtube.com/watch?v=pPAAFMtDUzo)
+
+Little Mix - [Secret love song](https://www.youtube.com/watch?v=qgy7vEje5-w)
+
+TaeYeon - [Four seasons](https://www.youtube.com/watch?v=5haSQXYoVwg)
+
+김진표 - [좋은 사람](https://www.youtube.com/watch?v=5ktts1wndV0)
+
+Alan Walker et al - [On my way](https://www.youtube.com/watch?v=dhYOPzcsbGM)
 
 <br>
 
@@ -105,4 +127,38 @@ Jay Z and Alicia Keys - [Empire state of mind](https://www.youtube.com/watch?v=a
 
 Eminem - [The way I am](https://www.youtube.com/watch?v=mQvteoFiMlg)
 
+Lil Dicky et al - [Earth](https://www.youtube.com/watch?v=pvuN_WvF1to)
 
+Take - [Butterfly grave](https://www.youtube.com/watch?v=rJGUmo30zak)
+
+2 Chainz and Wiz Khalifa - [We own it](https://www.youtube.com/watch?v=rJGUmo30zak)
+
+Ariana Grande - [7 rings](https://www.youtube.com/watch?v=QYh6mYIJG2Y)
+
+Tones and I - [Dance monkey](https://www.youtube.com/watch?v=q0hyYWKXF0Q)
+
+Dax - [Rap God](https://www.youtube.com/watch?v=ieYp4yhrXj4)
+
+Flo Rida - [Right round](https://www.youtube.com/watch?v=CcCw1ggftuQ)
+
+Flo Rida - [My house](https://www.youtube.com/watch?v=uo35R9zQsAI)
+
+Coolio and L.V. - [Gangsta's paradise](https://www.youtube.com/watch?v=fPO76Jlnz6c)
+
+Maroon 5 and Cardi B - [Girls like you](https://www.youtube.com/watch?v=aJOTlE1K90k)
+
+Lil Pump - [Gucci Gang](https://www.youtube.com/watch?v=4LfJnj66HVQ)
+
+Janji and Johnning - [Heoes tonight](https://www.youtube.com/watch?v=3yJaKiERTIc)
+
+Lil Pump - [Esskeetit](https://www.youtube.com/watch?v=DPxL7dO5XPc)
+
+Alan Walker et al - [Lily](https://www.youtube.com/watch?v=kTJbE3sfvlI)
+
+MIKA - [Happy ending](https://www.youtube.com/watch?v=vzoYgasvKdo)
+
+Jay Z and Kanye West - [Niggas in Paris](https://www.youtube.com/watch?v=gG_dA32oH44)
+
+Clean Bandit et al - [Rockabye](https://www.youtube.com/watch?v=papuvlVeZg8)
+
+Shawn Mendes and Camila Cabello - [Señorita](https://www.youtube.com/watch?v=Pkh8UtuejGw)
