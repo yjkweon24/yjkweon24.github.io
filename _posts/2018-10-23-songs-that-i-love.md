@@ -39,6 +39,18 @@ NF - [The search](https://www.youtube.com/watch?v=fnlJw9H0xAM)
 
 임재범 - [독종](https://www.youtube.com/watch?v=VV6dsi8NxNQ)
 
+Maroon5 -[Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
+
+김필 - [그때 그 아인](https://www.youtube.com/watch?v=bRBn5EY505E)
+
+먼데이 키즈(Monday Kiz) - [사랑이 식었다고 말해도 되](https://www.youtube.com/watch?v=tlHTOlnPcbs)
+
+박혜원 - [시든 꽃에 물을 주듯](https://www.youtube.com/watch?v=tMhizg-1OzA)
+
+백지영 - [거짓말이라도 해서 널 보고싶어](https://www.youtube.com/watch?v=Lu3TvqaB8YQ)
+
+백지영 - [다시는 사랑하지 않고, 이별에 아파하기 싫어](https://www.youtube.com/watch?v=nqBujqYAH7g)
+
 <br>
 
 ## B
@@ -82,6 +94,18 @@ TaeYeon - [Four seasons](https://www.youtube.com/watch?v=5haSQXYoVwg)
 김진표 - [좋은 사람](https://www.youtube.com/watch?v=5ktts1wndV0)
 
 Alan Walker et al - [On my way](https://www.youtube.com/watch?v=dhYOPzcsbGM)
+
+Maroon5 - [Nobody's Love](https://www.youtube.com/watch?v=7ghhRHRP6t4)
+
+태연 TaeYeon - [만약에 If](https://www.youtube.com/watch?v=m4xvqCmcBRU)
+
+Juice WRLD and Halsey - [Life's a mess](https://www.youtube.com/watch?v=IetcXhv83gQ)
+
+산들 - [취기를 빌려](https://www.youtube.com/watch?v=d2ytH5mymWY)
+
+어드밴스드 Advanced and 숀 Shaun - [내 탓 My bad](https://www.youtube.com/watch?v=5ligU7duRPs)
+
+Bigbang - [하루하루](https://www.youtube.com/watch?v=8OAQ6RuYFGE)
 
 <br>
 
@@ -164,3 +188,35 @@ Clean Bandit et al - [Rockabye](https://www.youtube.com/watch?v=papuvlVeZg8)
 Shawn Mendes and Camila Cabello - [Señorita](https://www.youtube.com/watch?v=Pkh8UtuejGw)
 
 라붐(Laboum) - [상상더하기](https://www.youtube.com/watch?v=SXTcZJM_qbo)
+
+라붐(Laboum) - [겨울동화 winter story](https://www.youtube.com/watch?v=5rkiKyppu1c)
+
+태연(TaeYeon) - [불티 Spark](https://www.youtube.com/watch?v=eP4ga_fNm-E)
+
+오마이걸(oh my girl) - [closer](https://www.youtube.com/watch?v=zV6-sZZgfQM)
+
+숀(Shaun) - [습관 bad habits](https://www.youtube.com/watch?v=eKNLp1xjdzI)
+
+Advanced and Vandi and 해이 - [Malibu Summer](https://www.youtube.com/watch?v=PdwmbJjn_l0)
+
+Twice - [More and More](https://www.youtube.com/watch?v=QBT5mDJF4E8)
+
+Twice - [Yes of Yes](https://www.youtube.com/watch?v=D3k2hTS4hEk)
+
+Twice - [Dance the night away](https://www.youtube.com/watch?v=HSXwb2gldI8)
+
+Twice - [우아하게](https://www.youtube.com/watch?v=gDMml9X_WeQ)
+
+Twice - [Feel Special](https://www.youtube.com/watch?v=ThrgLGJrerY)
+
+BTS - [Dynamite](https://www.youtube.com/watch?v=gdZLi9oWNZg)
+
+BTS and Halsey - [작은 것들을 위한 시](https://www.youtube.com/watch?v=XsX3ATc3FbA)
+
+Bigbang - [Blue](https://www.youtube.com/watch?v=2GRP1rkE4O0)
+
+Blackpink - [How you like that](https://www.youtube.com/watch?v=ioNng23DkIM)
+
+Blackpink - [Kill this love](https://www.youtube.com/watch?v=2S24-y0Ij3Y)
+
+Blackpink - [Ddu du Ddu du](https://www.youtube.com/watch?v=IHNzOHi8sJs)
