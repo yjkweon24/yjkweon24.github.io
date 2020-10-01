@@ -51,6 +51,8 @@ Maroon5 -[Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
 
 백지영 - [다시는 사랑하지 않고, 이별에 아파하기 싫어](https://www.youtube.com/watch?v=nqBujqYAH7g)
 
+노라조 - [형](https://www.youtube.com/watch?v=wYOKtTIYcIU)
+
 <br>
 
 ## B
@@ -106,6 +108,18 @@ Juice WRLD and Halsey - [Life's a mess](https://www.youtube.com/watch?v=IetcXhv8
 어드밴스드 Advanced and 숀 Shaun - [내 탓 My bad](https://www.youtube.com/watch?v=5ligU7duRPs)
 
 Bigbang - [하루하루](https://www.youtube.com/watch?v=8OAQ6RuYFGE)
+
+태양 - [눈,코,입](https://www.youtube.com/watch?v=UwuAPyOImoI)
+
+헤이즈 - [비도 오고 그래서](https://www.youtube.com/watch?v=afxLaQiLu-o)
+
+Justin Bieber and Chance the rapper - [Holy](https://www.youtube.com/watch?v=0eDJ0Tla0ac)
+
+Juice WRLD and Marshmello - [Come&Go](https://www.youtube.com/watch?v=Dxm3cHrKcbA)
+
+박보람 - [거짓말이라도 해줘요](https://www.youtube.com/watch?v=GKmZm3MTkOo)
+
+Post Malone and Juice WRLD.remix - [Goodbyes](https://www.youtube.com/watch?v=JtoVIo3kiJ8)
 
 <br>
 
@@ -220,3 +234,7 @@ Blackpink - [How you like that](https://www.youtube.com/watch?v=ioNng23DkIM)
 Blackpink - [Kill this love](https://www.youtube.com/watch?v=2S24-y0Ij3Y)
 
 Blackpink - [Ddu du Ddu du](https://www.youtube.com/watch?v=IHNzOHi8sJs)
+
+선미 - [보라빛 밤](https://www.youtube.com/watch?v=H8YW1tlsmE8)
+
+
