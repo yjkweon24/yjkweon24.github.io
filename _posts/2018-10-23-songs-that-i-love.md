@@ -121,6 +121,12 @@ Juice WRLD and Marshmello - [Come&Go](https://www.youtube.com/watch?v=Dxm3cHrKcb
 
 Post Malone and Juice WRLD.remix - [Goodbyes](https://www.youtube.com/watch?v=JtoVIo3kiJ8)
 
+Post Malone - [Circles](https://www.youtube.com/watch?v=wXhTHyIgQ_U)
+
+Post Malone - [Myself](https://www.youtube.com/watch?v=gqthPT8vK7o)
+
+Post Malone - [Better Now](https://www.youtube.com/watch?v=UYwF-jdcVjY)
+
 <br>
 
 ## C
@@ -236,5 +242,9 @@ Blackpink - [Kill this love](https://www.youtube.com/watch?v=2S24-y0Ij3Y)
 Blackpink - [Ddu du Ddu du](https://www.youtube.com/watch?v=IHNzOHi8sJs)
 
 선미 - [보라빛 밤](https://www.youtube.com/watch?v=H8YW1tlsmE8)
+
+Post Malone and 21 Savage - [Rockstar](https://www.youtube.com/watch?v=UceaB4D0jpo)
+
+Post Malone and Quavo - [Congratulations](https://www.youtube.com/watch?v=SC4xMk98Pdc)
 
 
