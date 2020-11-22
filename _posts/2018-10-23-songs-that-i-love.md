@@ -55,6 +55,14 @@ Maroon5 -[Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
 
 Justin Bieber and Benny Blanco - [Lonely](https://www.youtube.com/watch?v=xQOO2xGQ1Pc)
 
+케이시(Kassy) - [행복하니](https://www.youtube.com/watch?v=hxGJVo-tgoM)
+
+경서예지 - [사실 나는](https://www.youtube.com/watch?v=XnmJPBE2Dfs)
+
+신예영 - [그리워하지도 말고, 찾아오지도 마](https://www.youtube.com/watch?v=KLi3kT3p6iA)
+
+정효빈 - [몇 번의 이별](https://www.youtube.com/watch?v=U_VKZTUlcNs)
+
 <br>
 
 ## B
@@ -142,6 +150,10 @@ KCM - [미친 버릇처럼 셋을 센다](https://www.youtube.com/watch?v=zyxJ3o
 Dax - [Gotham](https://www.youtube.com/watch?v=Ve6nUvv47T4)
 
 Dax - [Jocker](https://www.youtube.com/watch?v=1-KJV5r_cho)
+
+임창정 - [힘든 건 사랑이 아니다](https://www.youtube.com/watch?v=HKtxkk3JvbQ)
+
+케이시(Kassy) - [가을밤 떠난 너](https://www.youtube.com/watch?v=fwM-OMcE4so)
 
 <br>
 
@@ -266,3 +278,5 @@ Post Malone and Quavo - [Congratulations](https://www.youtube.com/watch?v=SC4xMk
 Logic and Eminem - [Homicide](https://www.youtube.com/watch?v=mfqsEpjEtrw)
 
 Why Don't We - [Fallin'](https://www.youtube.com/watch?v=vgx-R_4s12U)
+
+24kGoldn and Iann dior - [Mood](https://www.youtube.com/watch?v=GrAchTdepsU) 
