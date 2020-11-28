@@ -155,6 +155,8 @@ Dax - [Jocker](https://www.youtube.com/watch?v=1-KJV5r_cho)
 
 케이시(Kassy) - [가을밤 떠난 너](https://www.youtube.com/watch?v=fwM-OMcE4so)
 
+Pink Sweat$ - [At my worst](https://www.youtube.com/watch?v=8CEJoCr_9UI)
+
 <br>
 
 ## C
