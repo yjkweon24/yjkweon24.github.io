@@ -63,6 +63,8 @@ Justin Bieber and Benny Blanco - [Lonely](https://www.youtube.com/watch?v=xQOO2x
 
 정효빈 - [몇 번의 이별](https://www.youtube.com/watch?v=U_VKZTUlcNs)
 
+경서 - [밤하늘의 별을](https://www.youtube.com/watch?v=S_0me7vYyeU&ab_channel=CDMUSIC)
+
 <br>
 
 ## B
@@ -156,6 +158,12 @@ Dax - [Jocker](https://www.youtube.com/watch?v=1-KJV5r_cho)
 케이시(Kassy) - [가을밤 떠난 너](https://www.youtube.com/watch?v=fwM-OMcE4so)
 
 Pink Sweat$ - [At my worst](https://www.youtube.com/watch?v=8CEJoCr_9UI)
+
+케이시(Kassy) - [이런 게 사랑이라면](https://www.youtube.com/watch?v=go63iFvJUvQ&ab_channel=Kassy-Topic)
+
+김재환 - [모든 순간에](https://www.youtube.com/watch?v=tuMI9DfgUEI&ab_channel=Musicismylife)
+
+Shawn Mendes and Justin Bieber - [Monster](https://www.youtube.com/watch?v=MPbUaIZAaeA&ab_channel=ShawnMendesVEVO)
 
 <br>
 
@@ -282,3 +290,5 @@ Logic and Eminem - [Homicide](https://www.youtube.com/watch?v=mfqsEpjEtrw)
 Why Don't We - [Fallin'](https://www.youtube.com/watch?v=vgx-R_4s12U)
 
 24kGoldn and Iann dior - [Mood](https://www.youtube.com/watch?v=GrAchTdepsU) 
+
+케이시(Kassy) - [이 마음이 찾아오면](https://www.youtube.com/watch?v=VXBI1wt8XII&ab_channel=Hello%2CMyMusicPlayer)
