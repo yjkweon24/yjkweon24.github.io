@@ -175,7 +175,7 @@ Dr. Dre et al - [Kush](https://www.youtube.com/watch?v=BuJDaOVz2qY)
 
 Eminem - [Without me](https://www.youtube.com/watch?v=YVkUvmDQ3HY)
 
-Eminem - [White America](https://www.youtube.com/watch?v=PKvqIFTCVYw)
+Eminem - [White America](https://www.youtube.com/watch?v=RZIzD0ZfTFg&ab_channel=EminemVEVO)
 
 Eminem - [Kill you](https://www.youtube.com/watch?v=D1I1x2pYMK0)
 
