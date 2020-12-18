@@ -211,7 +211,7 @@ Lil Dicky et al - [Earth](https://www.youtube.com/watch?v=pvuN_WvF1to)
 
 Take - [Butterfly grave](https://www.youtube.com/watch?v=rJGUmo30zak)
 
-2 Chainz and Wiz Khalifa - [We own it](https://www.youtube.com/watch?v=rJGUmo30zak)
+2 Chainz and Wiz Khalifa - [We own it](https://www.youtube.com/watch?v=tYQ1Okyi3g4&ab_channel=2ChainzVEVO)
 
 Ariana Grande - [7 rings](https://www.youtube.com/watch?v=QYh6mYIJG2Y)
 
