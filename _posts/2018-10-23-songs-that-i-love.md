@@ -39,8 +39,6 @@ NF - [The search](https://www.youtube.com/watch?v=fnlJw9H0xAM)
 
 임재범 - [독종](https://www.youtube.com/watch?v=VV6dsi8NxNQ)
 
-Maroon5 -[Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
-
 김필 - [그때 그 아인](https://www.youtube.com/watch?v=bRBn5EY505E)
 
 먼데이 키즈(Monday Kiz) - [사랑이 식었다고 말해도 되](https://www.youtube.com/watch?v=tlHTOlnPcbs)
