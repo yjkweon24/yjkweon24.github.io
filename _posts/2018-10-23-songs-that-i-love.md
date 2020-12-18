@@ -81,8 +81,6 @@ Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
 
 Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjafTc)
 
-Rocky Balboa - [Can you feel it](https://www.youtube.com/watch?v=UDRoLRoGots)
-
 Eminem - [Cold wind blows](https://www.youtube.com/watch?v=c4Yz9o5UtN8)
 
 Eminem - [Still don't give a fuck](https://www.youtube.com/watch?v=y9FBhlL3NZE)
