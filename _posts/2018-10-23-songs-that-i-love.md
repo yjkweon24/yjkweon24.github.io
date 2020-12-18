@@ -257,7 +257,7 @@ Advanced and Vandi and 해이 - [Malibu Summer](https://www.youtube.com/watch?v=
 
 Twice - [More and More](https://www.youtube.com/watch?v=QBT5mDJF4E8)
 
-Twice - [Yes of Yes](https://www.youtube.com/watch?v=D3k2hTS4hEk)
+Twice - [Yes or Yes](https://www.youtube.com/watch?v=D3k2hTS4hEk)
 
 Twice - [Dance the night away](https://www.youtube.com/watch?v=HSXwb2gldI8)
 
