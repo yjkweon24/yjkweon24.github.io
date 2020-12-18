@@ -67,7 +67,7 @@ Justin Bieber and Benny Blanco - [Lonely](https://www.youtube.com/watch?v=xQOO2x
 
 ## B
 
-B.O.B and Eminem - [Airplanes](https://www.youtube.com/watch?v=bMgIzcMSpGM)
+B.O.B and Eminem - [Airplanes](https://www.youtube.com/watch?v=1BdUa8U0kDs&ab_channel=pinkclouds)
 
 Skylar Grey, Eminem, and Yelawolf - [Twisted](https://www.youtube.com/watch?v=TU-3uh2vW5A)
 
