@@ -93,6 +93,10 @@ Eminem - [Like toy soldiers](https://www.youtube.com/watch?v=lexLAjh8fPA)
 
 NF - [Intro](https://www.youtube.com/watch?v=V9dIVtoxIyo)
 
+NF - [Intro II](https://www.youtube.com/watch?v=zzcOPNpKvRY&ab_channel=NFVEVO)
+
+NF - [Intro III](https://www.youtube.com/watch?v=AwW3YhXg3-g&ab_channel=NF-Topic)
+
 Eminem - [Sing for the moment](https://www.youtube.com/watch?v=D4hAVemuQXY)
 
 Lauv - [Changes](https://www.youtube.com/watch?v=pPAAFMtDUzo)
