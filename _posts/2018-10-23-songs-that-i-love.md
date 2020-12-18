@@ -205,8 +205,6 @@ K.Will - [Talk love](https://www.youtube.com/watch?v=pZeMWj2Hpd0)
 
 Mad Clown and Kim Na Young - [Once again](https://www.youtube.com/watch?v=RwFi7wnH5W0)
 
-Jay Z and Alicia Keys - [Empire state of mind](https://www.youtube.com/watch?v=an3UERXQv2s)
-
 Eminem - [The way I am](https://www.youtube.com/watch?v=mQvteoFiMlg)
 
 Lil Dicky et al - [Earth](https://www.youtube.com/watch?v=pvuN_WvF1to)
