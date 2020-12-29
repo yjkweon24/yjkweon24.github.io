@@ -63,6 +63,12 @@ Justin Bieber and Benny Blanco - [Lonely](https://www.youtube.com/watch?v=xQOO2x
 
 경서 - [밤하늘의 별을](https://www.youtube.com/watch?v=S_0me7vYyeU&ab_channel=CDMUSIC)
 
+김조한 Kim Jo Han - [사랑에 빠지고 싶다](https://www.youtube.com/watch?v=Nq6VTT-5u1M&ab_channel=LeeSang) 
+
+Taeyeon - [가까이 Closer](https://www.youtube.com/watch?v=NurPNewqAYk&ab_channel=ColicoliHoney)
+
+박혜경 - [Rain](https://www.youtube.com/watch?v=E0C-tN9QJ3Q&ab_channel=pops8090)
+
 <br>
 
 ## B
@@ -164,6 +170,24 @@ Pink Sweat$ - [At my worst](https://www.youtube.com/watch?v=8CEJoCr_9UI)
 김재환 - [모든 순간에](https://www.youtube.com/watch?v=tuMI9DfgUEI&ab_channel=Musicismylife)
 
 Shawn Mendes and Justin Bieber - [Monster](https://www.youtube.com/watch?v=MPbUaIZAaeA&ab_channel=ShawnMendesVEVO)
+
+서영은 - [내안의 그대](https://www.youtube.com/watch?v=A8lQyE25uyI&ab_channel=HANKOOKNORE) 
+
+VOS - [눈을 보고 말해요](https://www.youtube.com/watch?v=Bko3bbbU2No&ab_channel=HANKOOKNORE)
+
+태원 - [나쁜 남자](https://www.youtube.com/watch?v=YXR40QGXesI&ab_channel=StoneMusicEntertainment) 
+
+IU and Kim Yuna - [Ice flower 얼음꽃](https://www.youtube.com/watch?v=8fCksQtuVek&ab_channel=1theK%28%EC%9B%90%EB%8D%94%EC%BC%80%EC%9D%B4%29)
+
+스트레이 The Stray - [너, 너](https://www.youtube.com/watch?v=oXB2frhDZdk&ab_channel=Musicismylife)
+
+스탠딩 에그 Standing Egg - [오래된 노래](https://www.youtube.com/watch?v=H23rF-rlxD4&ab_channel=Musicismylife)
+
+이우 and 하이디(소나무) - [어차피 헤어진 사이](https://www.youtube.com/watch?v=gRCevdN8KX0&ab_channel=Musicismylife)
+
+Skylar Grey and Eminem - [Kill for you](https://www.youtube.com/watch?v=OFfJwXpRTgM&ab_channel=SkylarGreyVEVO)
+
+Eminem (worked by 셰이디am3) - [에미넴 랩 스페셜 Eminem Rap Compilation](https://www.youtube.com/watch?v=72-Nl3NnVhQ&ab_channel=%EC%85%B0%EC%9D%B4%EB%94%94am3)
 
 <br>
 
@@ -292,3 +316,10 @@ Why Don't We - [Fallin'](https://www.youtube.com/watch?v=vgx-R_4s12U)
 케이시(Kassy) - [이 마음이 찾아오면](https://www.youtube.com/watch?v=VXBI1wt8XII&ab_channel=Hello%2CMyMusicPlayer)
 
 Eminem and Juice WRLD - [Godzilla](https://www.youtube.com/watch?v=r_0JjYUe5jo&ab_channel=LyricalLemonade)
+
+Ariana Grande - [Santa tell me](https://www.youtube.com/watch?v=jnXxxKZ57Tw&ab_channel=ArianaGrandeVevo) 
+
+Camille (Cover by Stella Jang) - [Le Festin](https://www.youtube.com/watch?v=beamS4GZ5T8&ab_channel=stellajangtv)
+
+
+
