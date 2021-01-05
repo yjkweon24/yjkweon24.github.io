@@ -15,6 +15,8 @@ title: Research/Projects
 
 [Omics Integration journal presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin3.pptx)
 
+To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-Show-up/tree/main/Jin%20's(%EC%9A%A9%EC%A7%84)%20Projects/Multi-omics%20algorithm%20and%20website%20developing...)
+
 
 <br>
 
@@ -27,6 +29,8 @@ title: Research/Projects
 [Prof. Baillet's Publications](https://scholar.google.ca/citations?hl=en&user=5GTopjMAAAAJ&view_op=list_works&sortby=pubdate)
 
 [Presentation](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin.pptx)
+
+To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-Show-up/tree/main/Jin%20's(%EC%9A%A9%EC%A7%84)%20Projects/LET's%20learn%20about%20brain%20-%20first%20neuro%20study!!!)
 
 <br>
 
