@@ -1,4 +1,4 @@
-# Coursework at McGill 
+# Main courseworks at McGill 
 
 * BINF 531: Statistical Bioinformatics
 
@@ -15,7 +15,7 @@
 
 <br>
 
-# Coursework at UC Berkeley
+# Main courseworks at UC Berkeley
 
 
 * MATH 110: Linear Algebra
@@ -42,7 +42,7 @@
 
 <br>
 
-# Coursework at Diablo Valley College
+# Main courseworks at Diablo Valley College
 
 
 * BUSAC 186: Financial Accounting
