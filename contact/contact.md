@@ -3,7 +3,7 @@ layout: default
 title: Contact
 ---
 
-## Jin Kweon
+## Jin Kweon (권용진)
 
 
 * Tel: 010-4995-2721
