@@ -42,6 +42,8 @@ To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-S
 
 [Prof. Stark's Publications](https://scholar.google.com/citations?hl=en&user=5EMVIoEAAAAJ&view_op=list_works&sortby=pubdate)
 
+To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-Show-up/tree/main/Jin%20's(%EC%9A%A9%EC%A7%84)%20Projects/Why%20conjoint%20is%20not%20working%3F)
+
 <br>
 
 <br>
@@ -66,3 +68,4 @@ To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-S
 
 [Report](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin1.pdf)
 
+To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-Show-up/tree/main/Jin%20's(%EC%9A%A9%EC%A7%84)%20Projects/SWITCH%20project%20on%20Mexico)
