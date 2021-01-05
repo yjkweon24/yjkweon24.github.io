@@ -42,16 +42,6 @@ title: Research/Projects
 
 <br>
 
-## Research under Professor Rasmus Nielsen (May 17 - Nov 17)
-
-[Prof. Nielsen's Website](http://www.nielsenlab.org/)
-
-[Prof. Nielsen's Publications](https://scholar.google.com/citations?hl=en&user=PySbfcEAAAAJ&view_op=list_works&sortby=pubdate)
-
-<br>
-
-<br>
-
 ## Research under Professor Heather Haveman and Jaren Haber (Feb 17 - Dec 17)
 
 [Prof. Haveman's Website](http://www.heatherhaveman.net/home.html)
