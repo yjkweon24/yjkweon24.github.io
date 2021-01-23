@@ -189,6 +189,8 @@ Skylar Grey and Eminem - [Kill for you](https://www.youtube.com/watch?v=OFfJwXpR
 
 Eminem (worked by 셰이디am3) - [에미넴 랩 스페셜 Eminem Rap Compilation](https://www.youtube.com/watch?v=72-Nl3NnVhQ&ab_channel=%EC%85%B0%EC%9D%B4%EB%94%94am3)
 
+Mark Mendy and Adam Christopher - [Hide and Seek](https://www.youtube.com/watch?v=oPbaFCq5alM&ab_channel=PopularMusic)
+
 <br>
 
 ## C
