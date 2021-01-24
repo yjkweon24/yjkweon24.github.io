@@ -193,6 +193,12 @@ Mark Mendy and Adam Christopher - [Hide and Seek](https://www.youtube.com/watch?
 
 Løv li - [I Miss You](https://www.youtube.com/watch?v=rIV_H96TRt0&list=RDoPbaFCq5alM&index=12&ab_channel=PopularMusic)
 
+Maroon 5 - [She will be loved](https://www.youtube.com/watch?v=6OeT4j_Xf4w&ab_channel=GoldTunes)
+
+Maroon 5 - [Maps](https://www.youtube.com/watch?v=Y7ix6RITXM0&ab_channel=Maroon5VEVO) 
+
+Maroon 5 - [Animals](https://www.youtube.com/watch?v=0GVExpdmoDs&ab_channel=7clouds) 
+
 <br>
 
 ## C
