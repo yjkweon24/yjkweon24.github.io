@@ -10,6 +10,8 @@
 
 * COMP 551: Applied Machine Learning (audit)
 
+* COMP 597: Machine Learning in Genomics and Healthcare (audit)
+
 
 <br>
 
