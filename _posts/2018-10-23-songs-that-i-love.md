@@ -338,3 +338,5 @@ ORKID - [1morenight](https://www.youtube.com/watch?v=N_gB7jOZl4Y&ab_channel=Popu
 ORKID - [Get to Know You](https://www.youtube.com/watch?v=NBHYmwyQthQ&ab_channel=PopularMusic)
 
 Snoop Dogg and Wiz Khalifa and Nipsey Hussle and YG - [The Marathon Continues](https://www.youtube.com/watch?v=ZVfyJaGV0E4&ab_channel=LongBeachFinest)
+
+Future and Drake - [Life is good](https://www.youtube.com/watch?v=l0U7SxXHkPY&ab_channel=FutureVEVO)
