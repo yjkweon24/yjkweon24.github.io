@@ -343,3 +343,5 @@ Snoop Dogg and Wiz Khalifa and Nipsey Hussle and YG - [The Marathon Continues](h
 *[2 Pac vers.](https://www.youtube.com/watch?v=7bM8IV65h5s&ab_channel=ThugLifeMusic)
 
 Future and Drake - [Life is good](https://www.youtube.com/watch?v=l0U7SxXHkPY&ab_channel=FutureVEVO)
+
+The Script - [Superheroes](https://www.youtube.com/watch?v=WIm1GgfRz6M&ab_channel=TheScriptVEVO) 
