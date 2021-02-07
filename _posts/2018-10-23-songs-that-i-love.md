@@ -203,6 +203,14 @@ Maroon 5 - [Animals](https://www.youtube.com/watch?v=0GVExpdmoDs&ab_channel=7clo
 
 Harry Styles - [Falling](https://www.youtube.com/watch?v=olGSAVOkkTI&ab_channel=HarryStylesVEVO)
 
+One Direction - [You and I](https://www.youtube.com/watch?v=_kqQDCxRCzM&ab_channel=OneDirectionVEVO)
+
+One Direction - [Night changes](https://www.youtube.com/watch?v=syFZfO_wfMQ&ab_channel=OneDirectionVEVO)
+
+One Direction - [Story of my life](https://www.youtube.com/watch?v=W-TE_Ys4iwM&ab_channel=OneDirectionVEVO) 
+
+One Direction - [Perfect](https://www.youtube.com/watch?v=Ho32Oh6b4jc&ab_channel=OneDirectionVEVO)
+
 <br>
 
 ## C
@@ -345,3 +353,11 @@ Snoop Dogg and Wiz Khalifa and Nipsey Hussle and YG - [The Marathon Continues](h
 Future and Drake - [Life is good](https://www.youtube.com/watch?v=l0U7SxXHkPY&ab_channel=FutureVEVO)
 
 The Script - [Superheroes](https://www.youtube.com/watch?v=WIm1GgfRz6M&ab_channel=TheScriptVEVO) 
+
+One Direction - [What makes you beautiful](https://www.youtube.com/watch?v=QJO3ROT-A4E&ab_channel=OneDirectionVEVO)
+
+One Direction - [One thing](https://www.youtube.com/watch?v=Y1xs_xPb46M&ab_channel=OneDirectionVEVO)
+
+One Direction - [Best song ever](https://www.youtube.com/watch?v=o_v9MY_FMcw&ab_channel=OneDirectionVEVO)
+
+One Direction - [Live while we're young](https://www.youtube.com/watch?v=AbPED9bisSc&ab_channel=OneDirectionVEVO)
