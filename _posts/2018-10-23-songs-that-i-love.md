@@ -211,6 +211,8 @@ One Direction - [Story of my life](https://www.youtube.com/watch?v=W-TE_Ys4iwM&a
 
 One Direction - [Perfect](https://www.youtube.com/watch?v=Ho32Oh6b4jc&ab_channel=OneDirectionVEVO)
 
+정효빈 - [이제는 어떻게 사랑을 하나요](https://www.youtube.com/watch?v=DS3eU3F4XpU&ab_channel=%EB%8F%84%EB%84%88%EC%B8%A0%EC%BB%AC%EC%B2%98%EC%95%A4%EB%AE%A4%EC%A7%81%2FDonutsTV)
+
 <br>
 
 ## C
