@@ -217,6 +217,8 @@ One Direction - [Perfect](https://www.youtube.com/watch?v=Ho32Oh6b4jc&ab_channel
 
 하현우 - [돌덩이](https://www.youtube.com/watch?v=VcWPHoHbANo&ab_channel=Musicismylife) 
 
+Justin Bieber - [Anyone](https://www.youtube.com/watch?v=L6USUGhQuCs&list=RDY15MOr9saxE&index=3&ab_channel=JustinBieber-Topic) 
+
 <br>
 
 ## C
