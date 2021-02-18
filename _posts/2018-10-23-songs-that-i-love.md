@@ -371,3 +371,5 @@ One Direction - [Best song ever](https://www.youtube.com/watch?v=o_v9MY_FMcw&ab_
 One Direction - [Live while we're young](https://www.youtube.com/watch?v=AbPED9bisSc&ab_channel=OneDirectionVEVO)
 
 Why Don't We - [Talk](https://www.youtube.com/watch?v=Y15MOr9saxE&ab_channel=WhyDon%27tWe)
+
+Why Don't We - [Lotus Inn](https://www.youtube.com/watch?v=hCbahb-Dwtc&list=RDY15MOr9saxE&index=4&ab_channel=WhyDon%27tWe-Topic)
