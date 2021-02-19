@@ -3,6 +3,8 @@ layout: post
 title: "Songs that I love"
 date: 2018-10-23
 ---
+# For those who are interested in bioinformatics, statistics, and machine learning, try [this](../2019-03-16-Academic.md)
+
 ## A
 
 Eminem et al - [I need a doctor](https://www.youtube.com/watch?v=VA770wpLX-Q)
