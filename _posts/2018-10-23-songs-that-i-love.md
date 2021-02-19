@@ -3,7 +3,7 @@ layout: post
 title: "Songs that I love"
 date: 2018-10-23
 ---
-# For those who are interested in bioinformatics, statistics, and machine learning, try [this](../2019-03-16-Academic.md)
+# For those who are interested in bioinformatics, statistics, and machine learning, try [this](https://yjkweon24.github.io/blog/2018/10/06/Academic)
 
 ## A
 
