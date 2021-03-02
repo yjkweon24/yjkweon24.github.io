@@ -1,5 +1,6 @@
 # Main courseworks at McGill 
 
+### a. chapter 1 
 * BINF 531: Statistical Bioinformatics
 
 * QLSC 600D2: Foundations of Quantitative Life Sciences II
@@ -8,8 +9,7 @@
 
 * QLSC 600D1: Foundations of Quantitative Life Sciences
 
-* COMP 551: Applied Machine Learning (audit)
-
+### b. chapter 2 
 * COMP 597: Machine Learning in Genomics and Healthcare (audit)
 
 * COMP 204: Computer Programming for Life Sciences (audit)
