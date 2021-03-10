@@ -16,6 +16,8 @@
 
 * DNA로 살펴 본 생물의 진화 Molecular evolution with DNA evidence: [link](http://www.kmooc.kr/courses/course-v1:POSTECHk+LIFE422k+2019_T1/course/)(audit) K-MOOC:: 김상욱 | POHANG UNIVERSITY OF SCIENCE AND TECHNOLOGY
 
+* 미생물학 입문 Microorganism: [link](http://www.kmooc.kr/courses/course-v1:INU+INU002+2020_L2_4/course/)(audit) K-MOOC:: 예정용 | Incheon National University
+
 <br>
 
 <br>
