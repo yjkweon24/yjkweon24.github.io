@@ -394,4 +394,4 @@ Why Don't we - [Unbelievable](https://www.youtube.com/watch?v=e-qY_UEOWD4&ab_cha
 
 Why Don't we - [Hooked](https://www.youtube.com/watch?v=c-SqoSNk3vI&list=RDhCbahb-Dwtc&index=5&ab_channel=WhyDon%27tWe-Topic)
 
-Korea University TERRA - [KILLITKOMORI](youtube.com/watch?v=Ius_HOcUIWY&list=RDIus_HOcUIWY&start_radio=1&ab_channel=Wonderwood)
+Korea University TERRA - [KILLITKOMORI](https://www.youtube.com/watch?v=Ius_HOcUIWY&list=RDIus_HOcUIWY&start_radio=1&ab_channel=Wonderwood)
