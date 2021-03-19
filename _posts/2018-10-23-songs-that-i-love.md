@@ -397,3 +397,5 @@ Why Don't we - [Hooked](https://www.youtube.com/watch?v=c-SqoSNk3vI&list=RDhCbah
 Korea University TERRA - [KILLITKOMORI](https://youtu.be/Ius_HOcUIWY)
 
 라붐 - [휘휘](https://youtu.be/YgrA_9wD590)
+
+Ava Max - [Take you to hell](https://www.youtube.com/watch?v=vdQDqcfdtcA)
