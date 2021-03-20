@@ -400,4 +400,4 @@ Korea University TERRA - [KILLITKOMORI](https://youtu.be/Ius_HOcUIWY)
 
 Ava Max - [Take you to hell](https://www.youtube.com/watch?v=vdQDqcfdtcA)
 
-브레이브 걸스 - [롤링](https://www.youtube.com/watch?v=3cZrxpK2EAQ)
+브레이브 걸스 Brave Girls - [롤링 Rollin'](https://www.youtube.com/watch?v=3cZrxpK2EAQ)
