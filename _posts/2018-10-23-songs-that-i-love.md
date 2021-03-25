@@ -401,3 +401,7 @@ Korea University TERRA - [KILLITKOMORI](https://youtu.be/Ius_HOcUIWY)
 Ava Max - [Take you to hell](https://www.youtube.com/watch?v=vdQDqcfdtcA)
 
 브레이브 걸스 Brave Girls - [롤링 Rollin'](https://www.youtube.com/watch?v=3cZrxpK2EAQ)
+
+Kehlani and G-Eazy - [Good life](https://www.youtube.com/watch?v=FG9M0aEpJGE)
+
+Masked Wolf - [Astronaut in the ocean](https://www.youtube.com/watch?v=MEg-oqI9qmw)
