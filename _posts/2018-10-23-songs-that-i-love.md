@@ -405,3 +405,11 @@ Ava Max - [Take you to hell](https://www.youtube.com/watch?v=vdQDqcfdtcA)
 Kehlani and G-Eazy - [Good life](https://www.youtube.com/watch?v=FG9M0aEpJGE)
 
 Masked Wolf - [Astronaut in the ocean](https://www.youtube.com/watch?v=MEg-oqI9qmw)
+
+Tyga and The Game - [Switch lanes](https://www.youtube.com/watch?v=DdCH6q5cNTk)
+
+A$AP Rocky - [Lord Pretty Flacko Jodye 2](https://www.youtube.com/watch?v=dcDqi6XQkfM)
+
+Joey Bada$$ and ScHoolboy Q - [Rockabye Baby](https://www.youtube.com/watch?v=FjPeF4lkEeQ)
+
+A$AP ROCKY, Skrillex, Birdy Nam Nam - [Wild For The Night](https://www.youtube.com/watch?v=1eWdbMBYlH4)
