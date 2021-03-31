@@ -227,6 +227,8 @@ Justin Bieber - [Anyone](https://www.youtube.com/watch?v=L6USUGhQuCs&list=RDY15M
 
 Why Don't We - [8 Letters](https://www.youtube.com/watch?v=WsVJNx0Z1Xs&list=RDY15MOr9saxE&index=7&ab_channel=WhyDon%27tWe-Topic) 
 
+Justin Bieber and Khalid - [As I Am](https://www.youtube.com/watch?v=33Uh-uNb5Oc) 
+
 <br>
 
 ## C
