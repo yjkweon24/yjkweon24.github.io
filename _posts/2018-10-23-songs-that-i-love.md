@@ -229,6 +229,14 @@ Why Don't We - [8 Letters](https://www.youtube.com/watch?v=WsVJNx0Z1Xs&list=RDY1
 
 Justin Bieber and Khalid - [As I Am](https://www.youtube.com/watch?v=33Uh-uNb5Oc) 
 
+Alan Walker - [Faded](https://www.youtube.com/watch?v=60ItHLz5WEA)
+
+Alan Walker - [Alone](https://www.youtube.com/watch?v=1-xGerv5FOk)
+
+Alan Walker - [Darkside](https://www.youtube.com/watch?v=M-P4QBt-FWw)
+
+Alan Walker - [Sing me to sleep](https://www.youtube.com/watch?v=2i2khp_npdE)
+
 <br>
 
 ## C
@@ -423,3 +431,5 @@ BTS - [Fly to my room](https://www.youtube.com/watch?v=jI_m5l4N3ys)
 Why Don't We and Macklemore - [I Don't Belong In This Club](https://www.youtube.com/watch?v=75fEhQlc9h4)
 
 Wiz Khalifa, Snoop Dogg, Juicy J, T-Pain - [Black And Yellow](https://www.youtube.com/watch?v=nWAGLkyxQG0)
+
+Alan Walker - [The Spectre](https://www.youtube.com/watch?v=wJnBTPUQS5A)
