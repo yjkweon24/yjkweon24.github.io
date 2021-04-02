@@ -241,6 +241,8 @@ Alan Walker - [Fade](https://www.youtube.com/watch?v=bM7SZ5SBzyY&ab_channel=NoCo
 
 Alan Walker and Noah Cyrus - [All falls down](https://www.youtube.com/watch?v=6RLLOEzdxsM&ab_channel=AlanWalker)
 
+Alan Walker and Gavin James - [Tired](https://www.youtube.com/watch?v=g4hGRvs6HHU&ab_channel=AlanWalker)
+
 <br>
 
 ## C
