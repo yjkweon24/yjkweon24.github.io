@@ -237,6 +237,10 @@ Alan Walker - [Darkside](https://www.youtube.com/watch?v=M-P4QBt-FWw)
 
 Alan Walker - [Sing me to sleep](https://www.youtube.com/watch?v=2i2khp_npdE)
 
+Alan Walker - [Fade](https://www.youtube.com/watch?v=bM7SZ5SBzyY&ab_channel=NoCopyrightSounds)
+
+Alan Walker and Noah Cyrus - [All falls down](https://www.youtube.com/watch?v=6RLLOEzdxsM&ab_channel=AlanWalker)
+
 <br>
 
 ## C
