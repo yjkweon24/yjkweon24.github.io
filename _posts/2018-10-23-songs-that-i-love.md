@@ -243,6 +243,8 @@ Alan Walker and Noah Cyrus - [All falls down](https://www.youtube.com/watch?v=6R
 
 Alan Walker and Gavin James - [Tired](https://www.youtube.com/watch?v=g4hGRvs6HHU&ab_channel=AlanWalker)
 
+Justin Bieber and Khalid - [As I am](https://www.youtube.com/watch?v=33Uh-uNb5Oc&ab_channel=JustinBieberVEVO)
+
 <br>
 
 ## C
