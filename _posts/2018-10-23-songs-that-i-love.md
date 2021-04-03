@@ -245,6 +245,8 @@ Alan Walker and Gavin James - [Tired](https://www.youtube.com/watch?v=g4hGRvs6HH
 
 Justin Bieber and Khalid - [As I am](https://www.youtube.com/watch?v=33Uh-uNb5Oc&ab_channel=JustinBieberVEVO)
 
+Machine Gun Kelly and Camila Cabello - [Bad Things](https://www.youtube.com/watch?v=QpbQ4I3Eidg&ab_channel=MGKVEVO)
+
 <br>
 
 ## C
