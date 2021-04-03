@@ -445,3 +445,7 @@ Wiz Khalifa, Snoop Dogg, Juicy J, T-Pain - [Black And Yellow](https://www.youtub
 Alan Walker - [The Spectre](https://www.youtube.com/watch?v=wJnBTPUQS5A)
 
 Why Don't We and Macklemore - [I Don't Belong In This Club](https://www.youtube.com/watch?v=75fEhQlc9h4&ab_channel=WhyDon%27tWe)
+
+Eminem - [Killshot](https://www.youtube.com/watch?v=FxQTY-W6GIo&ab_channel=EminemMusic)
+
+Machine Gun Kelly - [Rap Devil](https://www.youtube.com/watch?v=Fp0BScQSSvg&ab_channel=WORLDSTARHIPHOP)
