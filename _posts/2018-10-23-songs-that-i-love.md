@@ -249,6 +249,10 @@ Machine Gun Kelly and Camila Cabello - [Bad Things](https://www.youtube.com/watc
 
 Imagine Dragons - [Demons](https://www.youtube.com/watch?v=mWRsgZuwf_8&ab_channel=ImagineDragonsVEVO)
 
+Imagine Dragons - [Believer](https://www.youtube.com/watch?v=7wtfhZwyrcc&ab_channel=ImagineDragonsVEVO)
+
+Imagine Dragons - [Radioactive](https://www.youtube.com/watch?v=ktvTqknDobU&ab_channel=ImagineDragonsVEVO)
+
 <br>
 
 ## C
