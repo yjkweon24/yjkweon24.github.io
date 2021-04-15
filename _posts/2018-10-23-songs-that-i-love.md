@@ -259,6 +259,8 @@ Imagine Dragons - [Radioactive](https://www.youtube.com/watch?v=ktvTqknDobU&ab_c
 
 接個吻 접개문 and 开一枪 개일창 - [失眠飞行 불면비행](https://youtu.be/BItdcKnlT0Y)
 
+자전거 탄 풍경 - [너에게 난 나에게 넌](https://youtu.be/5ysdHjaeGGU)
+
 <br>
 
 ## C
@@ -463,3 +465,7 @@ Machine Gun Kelly - [Rap Devil](https://www.youtube.com/watch?v=Fp0BScQSSvg&ab_c
 Reiley - [Let It Ring](https://www.youtube.com/watch?v=E_viAcnwDYo)
 
 Fifth Harmony and Ty Dolla $ign - [Work from home](https://youtu.be/5GL9JoH4Sws)
+
+BOL4 볼빨간사춘기 - [여행 Travel](https://youtu.be/xRbPAVnqtcs)
+
+BOL4 볼빨간사춘기 - [워커홀릭 Workaholic](https://youtu.be/mrAIqeULUL0)
