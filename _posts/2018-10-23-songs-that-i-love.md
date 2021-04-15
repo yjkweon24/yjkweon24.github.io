@@ -75,6 +75,8 @@ Taeyeon - [가까이 Closer](https://www.youtube.com/watch?v=NurPNewqAYk&ab_chan
 
 박혜경 - [Rain](https://www.youtube.com/watch?v=E0C-tN9QJ3Q&ab_channel=pops8090)
 
+胡夏 Xia Hu - [Those Bygone Years 那些年](https://www.youtube.com/watch?v=KqjgLbKZ1h0&ab_channel=HuXiaVEVO)
+
 <br>
 
 ## B
@@ -252,6 +254,10 @@ Imagine Dragons - [Demons](https://www.youtube.com/watch?v=mWRsgZuwf_8&ab_channe
 Imagine Dragons - [Believer](https://www.youtube.com/watch?v=7wtfhZwyrcc&ab_channel=ImagineDragonsVEVO)
 
 Imagine Dragons - [Radioactive](https://www.youtube.com/watch?v=ktvTqknDobU&ab_channel=ImagineDragonsVEVO)
+
+赵方婧 조방정 - [芒种 망종](https://youtu.be/hIMG-qPYZxk)
+
+接個吻 접개문 and 开一枪 개일창 - [失眠飞行 불면비행](https://youtu.be/BItdcKnlT0Y)
 
 <br>
 
