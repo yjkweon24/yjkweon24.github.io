@@ -263,7 +263,7 @@ Imagine Dragons - [Radioactive](https://www.youtube.com/watch?v=ktvTqknDobU&ab_c
 
 Why Don't We - [Grey](https://youtu.be/1ox_P0H65XI)
 
-명탐정 코난 인트로 - [코난충](https://youtu.be/qQmJy2rG20s)
+코난충 - [명탐정 코난 인트로](https://youtu.be/qQmJy2rG20s)
 
 <br>
 
