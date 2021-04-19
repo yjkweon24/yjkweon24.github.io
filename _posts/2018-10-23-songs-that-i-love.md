@@ -478,3 +478,5 @@ BOL4 볼빨간사춘기 - [썸 탈거야 Some](https://youtu.be/hZmoMyFXDoI)
 
 Owl City and Carly Rae Jepsen - [Good time](https://youtu.be/H7HmzwI67ec)
 *[Amazing live America's Got Talent](https://www.youtube.com/watch?v=fBRZWrM1_jo)
+
+王七七(왕치치) - [我愿意平凡的陪在你身旁(평범하게 네 곁에 있고 싶어)](https://youtu.be/ovwpttWG-9I)
