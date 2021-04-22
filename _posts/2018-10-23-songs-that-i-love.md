@@ -267,6 +267,7 @@ Why Don't We - [Grey](https://youtu.be/1ox_P0H65XI)
 
 Lee Young Hyun (이영현) - [Forsake (연(捐))](https://www.youtube.com/watch?v=ZhMQaaE1W68)
 
+에릭남 (Eric Nam) X 이나은 - [끌림](https://www.youtube.com/watch?v=kMt0muFdmYc&list=RDkMt0muFdmYc&index=1)
 <br>
 
 ## C
