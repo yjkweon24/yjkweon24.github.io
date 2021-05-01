@@ -268,6 +268,9 @@ Why Don't We - [Grey](https://youtu.be/1ox_P0H65XI)
 Lee Young Hyun (이영현) - [Forsake (연(捐))](https://www.youtube.com/watch?v=ZhMQaaE1W68)
 
 에릭남 (Eric Nam) X 이나은 - [끌림](https://www.youtube.com/watch?v=kMt0muFdmYc&list=RDkMt0muFdmYc&index=1)
+
+Justin Bieber - [Boyfriend](https://www.youtube.com/watch?v=4GuqB1BQVr4)
+
 <br>
 
 ## C
@@ -483,3 +486,5 @@ Owl City and Carly Rae Jepsen - [Good time](https://youtu.be/H7HmzwI67ec)
 *[Amazing live America's Got Talent](https://www.youtube.com/watch?v=fBRZWrM1_jo)
 
 王七七(왕치치) - [我愿意平凡的陪在你身旁(평범하게 네 곁에 있고 싶어)](https://youtu.be/ovwpttWG-9I)
+
+Justin Bieber - [Baby](https://www.youtube.com/watch?v=kffacxfA7G4)
