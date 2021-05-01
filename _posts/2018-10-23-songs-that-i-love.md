@@ -245,8 +245,6 @@ Alan Walker and Noah Cyrus - [All falls down](https://www.youtube.com/watch?v=6R
 
 Alan Walker and Gavin James - [Tired](https://www.youtube.com/watch?v=g4hGRvs6HHU&ab_channel=AlanWalker)
 
-Justin Bieber and Khalid - [As I am](https://www.youtube.com/watch?v=33Uh-uNb5Oc&ab_channel=JustinBieberVEVO)
-
 Machine Gun Kelly and Camila Cabello - [Bad Things](https://www.youtube.com/watch?v=QpbQ4I3Eidg&ab_channel=MGKVEVO)
 
 Imagine Dragons - [Demons](https://www.youtube.com/watch?v=mWRsgZuwf_8&ab_channel=ImagineDragonsVEVO)
@@ -490,3 +488,5 @@ Owl City and Carly Rae Jepsen - [Good time](https://youtu.be/H7HmzwI67ec)
 王七七(왕치치) - [我愿意平凡的陪在你身旁(평범하게 네 곁에 있고 싶어)](https://youtu.be/ovwpttWG-9I)
 
 Justin Bieber - [Baby](https://www.youtube.com/watch?v=kffacxfA7G4)
+
+DJ Khaled, Justin Bieber, Quavo, Chance the Rapper, Lil Wayne - [I'm the one](https://www.youtube.com/watch?v=weeI1G46q0o)
