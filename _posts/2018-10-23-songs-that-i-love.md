@@ -77,6 +77,8 @@ Taeyeon - [가까이 Closer](https://www.youtube.com/watch?v=NurPNewqAYk&ab_chan
 
 胡夏 Xia Hu - [Those Bygone Years 那些年](https://www.youtube.com/watch?v=KqjgLbKZ1h0&ab_channel=HuXiaVEVO)
 
+황인욱 - [응급실](https://www.youtube.com/watch?v=kB5g7ceKejw)
+
 <br>
 
 ## B
