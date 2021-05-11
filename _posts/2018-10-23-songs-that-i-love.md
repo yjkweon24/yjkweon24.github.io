@@ -279,6 +279,8 @@ Justin Bieber, Daniel Caesar, Giveon - [Peaches](https://www.youtube.com/watch?v
 
 Justin Bieber - [Off my face](https://www.youtube.com/watch?v=ENjrJ_zyeUc)
 
+Clean Bandit and Zara Larsson - [Symphony](https://www.youtube.com/watch?v=DOw8V_YtwYE)
+
 <br>
 
 ## C
