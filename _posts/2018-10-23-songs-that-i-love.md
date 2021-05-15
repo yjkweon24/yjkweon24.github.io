@@ -281,6 +281,8 @@ Justin Bieber - [Off my face](https://www.youtube.com/watch?v=ENjrJ_zyeUc)
 
 Clean Bandit and Zara Larsson - [Symphony](https://www.youtube.com/watch?v=DOw8V_YtwYE)
 
+Ed Sheeran - [Photograph](https://www.youtube.com/watch?v=qgmXPCX4VzU)
+
 <br>
 
 ## C
