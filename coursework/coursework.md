@@ -20,6 +20,8 @@
 
 * 알기 쉬운 분자생물학 Molecular Bio: [link](http://www.kmooc.kr/courses/course-v1:UOSk+ACE_UOS07+2021_T1/course/)(audit) K-MOOC:: 유권열 | University of Seoul 
  
+* OSAM AI 4 - CNN,RNN: [link](https://osam.kr/course/course_list.jsp?cid=1167)
+ 
 <br>
 
 <br>
