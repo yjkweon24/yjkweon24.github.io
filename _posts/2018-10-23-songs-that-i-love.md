@@ -79,6 +79,8 @@ Taeyeon - [가까이 Closer](https://www.youtube.com/watch?v=NurPNewqAYk&ab_chan
 
 황인욱 - [응급실](https://www.youtube.com/watch?v=kB5g7ceKejw)
 
+Post Malone, Ozzy Osbourne, Travis Scott - [Take What You Want](https://www.youtube.com/watch?v=LYa_ReqRlcs)
+
 <br>
 
 ## B
