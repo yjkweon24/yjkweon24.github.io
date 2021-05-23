@@ -504,3 +504,5 @@ Justin Bieber - [Baby](https://www.youtube.com/watch?v=kffacxfA7G4)
 DJ Khaled, Justin Bieber, Quavo, Chance the Rapper, Lil Wayne - [I'm the one](https://www.youtube.com/watch?v=weeI1G46q0o)
 
 Anne Marie - [2002](https://www.youtube.com/watch?v=Il-an3K9pjg)
+
+Maggie Lindemann (Cheat Codes x Cade Remix) - [Pretty Girl](https://www.youtube.com/watch?v=RhkgEgPqGc4)
