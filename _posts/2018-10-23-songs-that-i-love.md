@@ -285,6 +285,8 @@ Clean Bandit and Zara Larsson - [Symphony](https://www.youtube.com/watch?v=DOw8V
 
 Ed Sheeran - [Photograph](https://www.youtube.com/watch?v=qgmXPCX4VzU)
 
+Kelly Clarkson - [Stronger](https://www.youtube.com/watch?v=Xn676-fLq7I)
+
 <br>
 
 ## C
