@@ -22,6 +22,8 @@
  
 * OSAM AI 4 - CNN,RNN: [link](https://osam.kr/course/course_list.jsp?cid=1167)
  
+* 확률적 그래픽 모델 Probabilistic graphical models: [link](http://www.kmooc.kr/courses/course-v1:AIIA+AIIA01+2021_T1_AIIA01/course/) (audit) K-MOOC:: 이준열 | AIIA
+ 
 <br>
 
 <br>
