@@ -510,3 +510,5 @@ DJ Khaled, Justin Bieber, Quavo, Chance the Rapper, Lil Wayne - [I'm the one](ht
 Anne Marie - [2002](https://www.youtube.com/watch?v=Il-an3K9pjg)
 
 Maggie Lindemann (Cheat Codes x Cade Remix) - [Pretty Girl](https://www.youtube.com/watch?v=RhkgEgPqGc4)
+
+Nico & Vinz - [Am I Wrong](https://www.youtube.com/watch?v=bg1sT4ILG0w)
