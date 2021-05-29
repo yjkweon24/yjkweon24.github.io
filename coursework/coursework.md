@@ -24,6 +24,8 @@
  
 * 확률적 그래픽 모델 Probabilistic graphical models: [link](http://www.kmooc.kr/courses/course-v1:AIIA+AIIA01+2021_T1_AIIA01/course/) (audit) K-MOOC:: 이준열 | AIIA
  
+* 강화학습의 수학적 기초와 알고리듬 이해 Maths and algorithms in reinforcement learning: [link](http://www.kmooc.kr/courses/course-v1:KoreaUnivK+ku_ai_002+2021_A24/course/) (audit) K-MOOC:: 정태수 | Korea University
+ 
 <br>
 
 <br>
