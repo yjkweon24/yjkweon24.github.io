@@ -287,6 +287,12 @@ Ed Sheeran - [Photograph](https://www.youtube.com/watch?v=qgmXPCX4VzU)
 
 Kelly Clarkson - [Stronger](https://www.youtube.com/watch?v=Xn676-fLq7I)
 
+아웃사이더 - [외톨이](https://www.youtube.com/watch?v=yROjTblMPag)
+
+슈프림팀 (Supreme Team) - [그땐, 그땐, 그땐](https://www.youtube.com/watch?v=lGT6ftrZynY)
+
+Cash Cash, Wiz Khalifa, Lukas Graham - [Too Late](https://www.youtube.com/watch?v=9LEvJ9kCoZc)
+
 <br>
 
 ## C
