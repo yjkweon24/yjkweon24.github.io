@@ -518,3 +518,7 @@ Anne Marie - [2002](https://www.youtube.com/watch?v=Il-an3K9pjg)
 Maggie Lindemann (Cheat Codes x Cade Remix) - [Pretty Girl](https://www.youtube.com/watch?v=RhkgEgPqGc4)
 
 Nico & Vinz - [Am I Wrong](https://www.youtube.com/watch?v=bg1sT4ILG0w)
+
+AJR - [Burn The House Down](https://www.youtube.com/watch?v=UnyLfqpyi94)
+
+Stellar - [Ashes](https://www.youtube.com/watch?v=1NnT8RjQHg8)
