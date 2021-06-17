@@ -293,6 +293,10 @@ Kelly Clarkson - [Stronger](https://www.youtube.com/watch?v=Xn676-fLq7I)
 
 Cash Cash, Wiz Khalifa, Lukas Graham - [Too Late](https://www.youtube.com/watch?v=9LEvJ9kCoZc)
 
+Mia Rodriguez - [Psycho](https://www.youtube.com/watch?v=KGgOz_gRD_c)
+
+Jagwar Twin - [Happy Face](https://www.youtube.com/watch?v=VrQju5rBPMg)
+
 <br>
 
 ## C
