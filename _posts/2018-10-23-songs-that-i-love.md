@@ -522,3 +522,5 @@ Nico & Vinz - [Am I Wrong](https://www.youtube.com/watch?v=bg1sT4ILG0w)
 AJR - [Burn The House Down](https://www.youtube.com/watch?v=UnyLfqpyi94)
 
 Stellar - [Ashes](https://www.youtube.com/watch?v=1NnT8RjQHg8)
+
+Snoop Dogg, Method Man, Redman, DMX - [Playa](https://www.youtube.com/watch?v=GFOtRrFH3z0)
