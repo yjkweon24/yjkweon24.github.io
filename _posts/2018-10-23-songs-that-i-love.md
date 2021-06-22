@@ -297,6 +297,8 @@ Mia Rodriguez - [Psycho](https://www.youtube.com/watch?v=KGgOz_gRD_c)
 
 Jagwar Twin - [Happy Face](https://www.youtube.com/watch?v=VrQju5rBPMg)
 
+Bruno Mars, Anderson .Paak, Silk Sonic - [Leave the door open](https://www.youtube.com/watch?v=adLGHcj_fmA)
+
 <br>
 
 ## C
