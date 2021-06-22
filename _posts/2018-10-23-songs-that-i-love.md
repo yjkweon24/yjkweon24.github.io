@@ -301,6 +301,8 @@ Bruno Mars, Anderson .Paak, Silk Sonic - [Leave the door open](https://www.youtu
 
 Bruno Mars - [Just the way you are](https://www.youtube.com/watch?v=LjhCEhWiKXk)
 
+Taylor Swift - [Love Story](https://www.youtube.com/watch?v=8xg3vE8Ie_E)
+
 <br>
 
 ## C
