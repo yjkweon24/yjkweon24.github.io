@@ -299,6 +299,8 @@ Jagwar Twin - [Happy Face](https://www.youtube.com/watch?v=VrQju5rBPMg)
 
 Bruno Mars, Anderson .Paak, Silk Sonic - [Leave the door open](https://www.youtube.com/watch?v=adLGHcj_fmA)
 
+Bruno Mars - [Just the way you are](https://www.youtube.com/watch?v=LjhCEhWiKXk)
+
 <br>
 
 ## C
