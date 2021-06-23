@@ -81,6 +81,8 @@ Taeyeon - [가까이 Closer](https://www.youtube.com/watch?v=NurPNewqAYk&ab_chan
 
 Post Malone, Ozzy Osbourne, Travis Scott - [Take What You Want](https://www.youtube.com/watch?v=LYa_ReqRlcs)
 
+Sam Smith - [To die for](https://www.youtube.com/watch?v=POIK1H3L86k&ab_channel=SamSmithVEVO)
+
 <br>
 
 ## B
