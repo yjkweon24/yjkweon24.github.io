@@ -305,6 +305,8 @@ Bruno Mars - [Just the way you are](https://www.youtube.com/watch?v=LjhCEhWiKXk)
 
 Taylor Swift - [Love Story](https://www.youtube.com/watch?v=8xg3vE8Ie_E)
 
+Ollie - [Paper heart](https://www.youtube.com/watch?v=AZfroUQPNiw&ab_channel=OfficialOllieMusic)
+
 <br>
 
 ## C
@@ -536,3 +538,7 @@ AJR - [Burn The House Down](https://www.youtube.com/watch?v=UnyLfqpyi94)
 Stellar - [Ashes](https://www.youtube.com/watch?v=1NnT8RjQHg8)
 
 Snoop Dogg, Method Man, Redman, DMX - [Playa](https://www.youtube.com/watch?v=GFOtRrFH3z0)
+
+Ori Rose - [A.S.A.G.](https://www.youtube.com/watch?v=HhwHPHiFJOQ&ab_channel=OriRose)
+
+David Hugo - [We made it](https://www.youtube.com/watch?v=XMaS9r78vq8&ab_channel=davidhugo)
