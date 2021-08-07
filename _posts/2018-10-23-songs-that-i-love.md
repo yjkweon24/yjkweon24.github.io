@@ -311,6 +311,8 @@ Ariana Grande - [Pov](https://www.youtube.com/watch?v=fLFvbwrWLQY&ab_channel=Ari
 
 헤이즈 - [헤픈 우연](https://www.youtube.com/watch?v=BvrrhpFAVSk)
 
+Sam Ryder - [Tiny riot](https://www.youtube.com/watch?v=nN_0YlcN-i8)
+
 <br>
 
 ## C
