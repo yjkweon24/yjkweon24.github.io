@@ -552,3 +552,5 @@ Ori Rose - [A.S.A.G.](https://www.youtube.com/watch?v=HhwHPHiFJOQ&ab_channel=Ori
 David Hugo - [We made it](https://www.youtube.com/watch?v=XMaS9r78vq8&ab_channel=davidhugo)
 
 Doja Cat -[Boss B*tch](https://www.youtube.com/watch?v=RsW66teC0BQ)
+
+The Kid LAROI, Justin Bieber - [Stay](https://www.youtube.com/watch?v=kTJczUoc26U)
