@@ -83,6 +83,8 @@ Post Malone, Ozzy Osbourne, Travis Scott - [Take What You Want](https://www.yout
 
 Sam Smith - [To die for](https://www.youtube.com/watch?v=POIK1H3L86k&ab_channel=SamSmithVEVO)
 
+MC Sniper, 웅산 - [인생](https://www.youtube.com/watch?v=9qP-My6sAzU)
+
 <br>
 
 ## B
@@ -318,6 +320,20 @@ Andy Grammer - [My Own Hero](https://www.youtube.com/watch?v=16kb228Kb8I)
 Why Don't We - [Cold in LA](https://www.youtube.com/watch?v=0Dlh7FLz7oY)
 
 Skylar Grey, Polo G, Mozzy, Eminem - [Last One Standing](https://www.youtube.com/watch?v=gXH7_XaGuPc) *[venom 2](https://www.youtube.com/watch?v=gU4vcJIbeOU)
+
+Lupe Fiasco - [Mission](https://www.youtube.com/watch?v=cOy92qd8ZOQ)
+
+The Script - [Six Degrees of Separation](https://www.youtube.com/watch?v=FCT6Mu-pOeE)
+
+Rachel Platten - [Fight Song](https://www.youtube.com/watch?v=xo1VInw-SKc)
+
+Eminem - [Careful what you wish for](https://www.youtube.com/watch?v=b2DwnGMAOQs)
+
+Eminem - [Bully](https://www.youtube.com/watch?v=Fe7BHiPALLc)
+
+Eminem - [Space bound](https://www.youtube.com/watch?v=JByDbPn6A1o)
+
+MGK - [Rap devil](https://www.youtube.com/watch?v=Fp0BScQSSvg)
 
 <br>
 
@@ -566,3 +582,5 @@ The Kid LAROI, Justin Bieber - [Stay](https://www.youtube.com/watch?v=kTJczUoc26
 Tech N9ne, Eminem,  Krizz Kaliko - [Speedom](https://www.youtube.com/watch?v=_FBwVRNOL70)
 
 Tech N9ne and Three 6 Mafia - [Demons](https://www.youtube.com/watch?v=5gGezuzyu_c)
+
+Eminem, Royce Da 5'9 - [Fast lane](https://www.youtube.com/watch?v=rJOsjP33nF4)
