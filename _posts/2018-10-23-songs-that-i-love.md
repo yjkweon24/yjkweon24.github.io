@@ -335,6 +335,12 @@ Eminem - [Space bound](https://www.youtube.com/watch?v=JByDbPn6A1o)
 
 MGK - [Rap devil](https://www.youtube.com/watch?v=Fp0BScQSSvg)
 
+임창정 - [내가 저지른 사랑](https://www.youtube.com/watch?v=L-2M_-QLs8k)
+
+임창정 - [또 다시 사랑](https://www.youtube.com/watch?v=7e54Bvrf3Vs)
+
+이소라 - [바람이 분다](https://www.youtube.com/watch?v=mRWxGCDBRNY)
+
 <br>
 
 ## C
