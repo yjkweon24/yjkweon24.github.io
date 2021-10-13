@@ -590,3 +590,8 @@ Tech N9ne, Eminem,  Krizz Kaliko - [Speedom](https://www.youtube.com/watch?v=_FB
 Tech N9ne and Three 6 Mafia - [Demons](https://www.youtube.com/watch?v=5gGezuzyu_c)
 
 Eminem, Royce Da 5'9 - [Fast lane](https://www.youtube.com/watch?v=rJOsjP33nF4)
+
+Saweetie, Doja Cat - [Best Friend](https://www.youtube.com/watch?v=_xJUCsyMQes&ab_channel=OfficialSaweetie)
+* Jamie, Chanmina, Saweetie, Doja cat [remix](https://www.youtube.com/watch?v=mQvhn_LvxA0&ab_channel=%EC%9B%8C%EB%84%88%EB%AE%A4%EC%A7%81%EC%BD%94%EB%A6%AC%EC%95%84%28WarnerMusicKorea%29)
+
+Doja Cat - [Say so](https://www.youtube.com/watch?v=pok8H_KF1FA&ab_channel=dojacatVEVO)
