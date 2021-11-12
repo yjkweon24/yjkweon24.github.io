@@ -607,3 +607,7 @@ Saweetie, Doja Cat - [Best Friend](https://www.youtube.com/watch?v=_xJUCsyMQes&a
 Doja Cat - [Say so](https://www.youtube.com/watch?v=pok8H_KF1FA&ab_channel=dojacatVEVO)
 
 Jason Mraz - [I'm yours](https://www.youtube.com/watch?v=EkHTsc9PU2A&ab_channel=JasonMraz)
+
+Ed Sheeran, Stormzy, Jaykae and Aitch - [Take Me Back To London (Sir Spyro Remix)](https://www.youtube.com/watch?v=XJQy_R9CYR4&ab_channel=EdSheeran)
+
+Ed Sheeran - [Bad habits](https://www.youtube.com/watch?v=orJSJGHjBLI)
