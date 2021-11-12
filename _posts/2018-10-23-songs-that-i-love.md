@@ -347,6 +347,10 @@ Passenger - [Let her go](https://www.youtube.com/watch?v=RBumgq5yVrA&ab_channel=
 
 Jason Mraz and Colbie Caillat - [Lucky](https://www.youtube.com/watch?v=acvIVA9-FMQ&list=OLAK5uy_mGEvz7VV0LbhKtPwd5WHfg8mvwZImZ7WM&ab_channel=JasonMraz)
 
+Meghan Trainor and John Legend - [Like I'm gonna lose you](https://www.youtube.com/watch?v=2-MBfn8XjIU&ab_channel=MeghanTrainorVEVO)
+
+Wiz Khalifa and Charlie Puth - [See you again](https://www.youtube.com/watch?v=RgKAFK5djSk&ab_channel=WizKhalifa)
+
 <br>
 
 ## C
