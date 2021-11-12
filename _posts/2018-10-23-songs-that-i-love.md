@@ -85,6 +85,8 @@ Sam Smith - [To die for](https://www.youtube.com/watch?v=POIK1H3L86k&ab_channel=
 
 MC Sniper, 웅산 - [인생](https://www.youtube.com/watch?v=9qP-My6sAzU)
 
+Justin Bieber - [Ghost](https://www.youtube.com/watch?v=Fp8msa5uYsc&ab_channel=JustinBieberVEVO)
+
 <br>
 
 ## B
@@ -340,8 +342,6 @@ MGK - [Rap devil](https://www.youtube.com/watch?v=Fp0BScQSSvg)
 임창정 - [또 다시 사랑](https://www.youtube.com/watch?v=7e54Bvrf3Vs)
 
 이소라 - [바람이 분다](https://www.youtube.com/watch?v=mRWxGCDBRNY)
-
-Justin Bieber - [Ghost](https://www.youtube.com/watch?v=Fp8msa5uYsc&ab_channel=JustinBieberVEVO)
 
 <br>
 
