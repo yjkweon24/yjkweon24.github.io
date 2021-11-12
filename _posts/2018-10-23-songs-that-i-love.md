@@ -343,6 +343,10 @@ MGK - [Rap devil](https://www.youtube.com/watch?v=Fp0BScQSSvg)
 
 이소라 - [바람이 분다](https://www.youtube.com/watch?v=mRWxGCDBRNY)
 
+Passenger - [Let her go](https://www.youtube.com/watch?v=RBumgq5yVrA&ab_channel=Passenger)
+
+Jason Mraz and Colbie Caillat - [Lucky](https://www.youtube.com/watch?v=acvIVA9-FMQ&list=OLAK5uy_mGEvz7VV0LbhKtPwd5WHfg8mvwZImZ7WM&ab_channel=JasonMraz)
+
 <br>
 
 ## C
@@ -597,3 +601,5 @@ Saweetie, Doja Cat - [Best Friend](https://www.youtube.com/watch?v=_xJUCsyMQes&a
 * Jamie, Chanmina, Saweetie, Doja cat [remix](https://www.youtube.com/watch?v=4ennNrNOgY0&ab_channel=OfficialSaweetie)
 
 Doja Cat - [Say so](https://www.youtube.com/watch?v=pok8H_KF1FA&ab_channel=dojacatVEVO)
+
+Jason Mraz - [I'm yours](https://www.youtube.com/watch?v=EkHTsc9PU2A&ab_channel=JasonMraz)
