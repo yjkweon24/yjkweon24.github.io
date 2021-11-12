@@ -341,6 +341,8 @@ MGK - [Rap devil](https://www.youtube.com/watch?v=Fp0BScQSSvg)
 
 이소라 - [바람이 분다](https://www.youtube.com/watch?v=mRWxGCDBRNY)
 
+Justin Bieber - [Ghost](https://www.youtube.com/watch?v=Fp8msa5uYsc&ab_channel=JustinBieberVEVO)
+
 <br>
 
 ## C
