@@ -351,6 +351,8 @@ Meghan Trainor and John Legend - [Like I'm gonna lose you](https://www.youtube.c
 
 Wiz Khalifa and Charlie Puth - [See you again](https://www.youtube.com/watch?v=RgKAFK5djSk&ab_channel=WizKhalifa)
 
+AJR - [100 bad days](https://www.youtube.com/watch?v=2c4dB52ehAE&ab_channel=AJR)
+
 <br>
 
 ## C
