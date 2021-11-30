@@ -87,6 +87,8 @@ MC Sniper, 웅산 - [인생](https://www.youtube.com/watch?v=9qP-My6sAzU)
 
 Justin Bieber - [Ghost](https://www.youtube.com/watch?v=Fp8msa5uYsc&ab_channel=JustinBieberVEVO)
 
+Etham - [12:45](https://www.youtube.com/watch?v=GhWnG7YhcEE&ab_channel=EthamVEVO)
+
 <br>
 
 ## B
