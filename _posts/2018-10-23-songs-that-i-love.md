@@ -357,6 +357,8 @@ AJR - [100 bad days](https://www.youtube.com/watch?v=2c4dB52ehAE&ab_channel=AJR)
 
 Ed Sheeran - [Shivers](https://www.youtube.com/watch?v=TQGkZ5oGmuw&ab_channel=EdSheeran)
 
+Maroon5 - [Beautiful mistakes](https://www.youtube.com/watch?v=BSzSn-PRdtI)
+
 <br>
 
 ## C
