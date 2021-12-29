@@ -89,6 +89,12 @@ Justin Bieber - [Ghost](https://www.youtube.com/watch?v=Fp8msa5uYsc&ab_channel=J
 
 Etham - [12:45](https://www.youtube.com/watch?v=GhWnG7YhcEE&ab_channel=EthamVEVO)
 
+Bruno Mars - [When I Was Your Man](https://www.youtube.com/watch?v=ekzHIouo8Q4)
+
+Bruno Mars - [Talking to the moon](https://www.youtube.com/watch?v=fXw0jcYbqdo)
+
+Bruno Mars - [Grenade](https://www.youtube.com/watch?v=SR6iYWJxHqs)
+
 <br>
 
 ## B
