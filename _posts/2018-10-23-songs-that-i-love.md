@@ -363,6 +363,8 @@ Why Don't We - [What am I](https://www.youtube.com/watch?v=ZxgbQz4n8-s)
 
 Ollie and Kolton Stewart - [Nothing Good Comes Easy](https://www.youtube.com/watch?v=S2r-houbGGE&list=RDMMNqwgNCPzCTg&index=5)
 
+Johnny Orlando - [Last Christmas](https://www.youtube.com/watch?v=JTcBcGbIBG4)
+
 <br>
 
 ## C
