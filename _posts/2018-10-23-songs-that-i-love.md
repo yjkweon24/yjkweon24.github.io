@@ -373,6 +373,8 @@ Ollie and Kolton Stewart - [Nothing Good Comes Easy](https://www.youtube.com/wat
 
 Johnny Orlando - [Last Christmas](https://www.youtube.com/watch?v=JTcBcGbIBG4)
 
+GAYLE - [abcdefu](https://www.youtube.com/watch?v=NaFd8ucHLuo)
+
 <br>
 
 ## C
