@@ -97,6 +97,8 @@ Bruno Mars - [Grenade](https://www.youtube.com/watch?v=SR6iYWJxHqs)
 
 Bruno Mars - [It will rain](https://www.youtube.com/watch?v=W-w3WfgpcGg)
 
+Vanessa Hudgens - [When There Was Me and You (From "High School Musical")](https://www.youtube.com/watch?v=GTZUvuduWPk)
+
 <br>
 
 ## B
@@ -375,6 +377,8 @@ Ollie and Kolton Stewart - [Nothing Good Comes Easy](https://www.youtube.com/wat
 Johnny Orlando - [Last Christmas](https://www.youtube.com/watch?v=JTcBcGbIBG4)
 
 GAYLE - [abcdefu](https://www.youtube.com/watch?v=NaFd8ucHLuo)
+
+Westlife - [My Love](https://www.youtube.com/watch?v=ulOb9gIGGd0)
 
 <br>
 
