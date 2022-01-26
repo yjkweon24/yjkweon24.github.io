@@ -644,3 +644,6 @@ Ed Sheeran - [Bad habits](https://www.youtube.com/watch?v=orJSJGHjBLI)
 Mariah Carey - [All I want for Christmas is you](https://www.youtube.com/watch?v=yXQViqx6GMY)
 
 Lil Nas X, Jack Harlow - [Industry baby](https://www.youtube.com/watch?v=UTHLKHL_whs)
+
+Anna Kendrick  - [Cups: When I am gone](https://www.youtube.com/watch?v=cmSbXsFE3l8)
+
