@@ -380,6 +380,8 @@ GAYLE - [abcdefu](https://www.youtube.com/watch?v=NaFd8ucHLuo)
 
 Westlife - [My Love](https://www.youtube.com/watch?v=ulOb9gIGGd0)
 
+Shane Filan - [Beautiful In White](https://youtu.be/06-XXOTP3Gc)
+
 <br>
 
 ## C
