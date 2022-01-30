@@ -649,3 +649,4 @@ Lil Nas X, Jack Harlow - [Industry baby](https://www.youtube.com/watch?v=UTHLKHL
 
 Anna Kendrick  - [Cups: When I am gone](https://www.youtube.com/watch?v=cmSbXsFE3l8)
 
+The Vamps - [Can we dance](https://www.youtube.com/watch?v=UqSww10eeKw)
