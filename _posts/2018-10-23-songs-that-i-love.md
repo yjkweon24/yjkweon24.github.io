@@ -652,3 +652,5 @@ Anna Kendrick  - [Cups: When I am gone](https://www.youtube.com/watch?v=cmSbXsFE
 The Vamps - [Can we dance](https://www.youtube.com/watch?v=UqSww10eeKw)
 
 The Vamps and Shawn Mendes - [Oh Cecilia (Breaking My Heart)](https://www.youtube.com/watch?v=COwkCW38J54&list=RD4UoCaIdpz1w&index=11)
+
+The Vamps - [Just my type](https://www.youtube.com/watch?v=Els_GCWuJVk)
