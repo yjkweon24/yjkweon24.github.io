@@ -650,3 +650,5 @@ Lil Nas X, Jack Harlow - [Industry baby](https://www.youtube.com/watch?v=UTHLKHL
 Anna Kendrick  - [Cups: When I am gone](https://www.youtube.com/watch?v=cmSbXsFE3l8)
 
 The Vamps - [Can we dance](https://www.youtube.com/watch?v=UqSww10eeKw)
+
+The Vamps and Shawn Mendes - [Oh Cecilia (Breaking My Heart)](https://www.youtube.com/watch?v=COwkCW38J54&list=RD4UoCaIdpz1w&index=11)
