@@ -382,6 +382,14 @@ Westlife - [My Love](https://www.youtube.com/watch?v=ulOb9gIGGd0)
 
 Shane Filan - [Beautiful In White](https://youtu.be/06-XXOTP3Gc)
 
+Dan + Shay, Justin Bieber - [10,000 Hours](https://www.youtube.com/watch?v=Y2E71oe0aSM)
+
+Ronghao Li - [不遗憾](https://www.youtube.com/watch?v=n_KHQk1w7Gs)
+
+Michael Wong- [童話 Fairy tale](https://www.youtube.com/watch?v=IBTmypxD2mU)
+
+Wanting - [我的歌声里 You Exist In My Song](https://www.youtube.com/watch?v=w0dMz8RBG7g)
+
 <br>
 
 ## C
