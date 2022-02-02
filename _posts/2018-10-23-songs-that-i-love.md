@@ -384,7 +384,7 @@ Shane Filan - [Beautiful In White](https://youtu.be/06-XXOTP3Gc)
 
 Dan + Shay, Justin Bieber - [10,000 Hours](https://www.youtube.com/watch?v=Y2E71oe0aSM)
 
-Ronghao Li - [不遗憾](https://www.youtube.com/watch?v=n_KHQk1w7Gs)
+Ronghao Li - [不遗憾](https://www.youtube.com/watch?v=n_KHQk1w7Gs) *[Kor lyrics](https://www.youtube.com/watch?v=12SFtOiziD8)
 
 Michael Wong- [童話 Fairy tale](https://www.youtube.com/watch?v=IBTmypxD2mU)
 
