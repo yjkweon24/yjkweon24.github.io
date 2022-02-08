@@ -670,3 +670,5 @@ Owl City - [Fireflies](https://www.youtube.com/watch?v=psuRGfAaju4&list=RDpsuRGf
 Dax - [Dr. Dre ft. Snoop Dogg "Still D.R.E." Remix](https://www.youtube.com/watch?v=67Pylw3Kukc)
 
 Dax - [Dr. Dre ft. Eminem "Forgot About Dre" Remix](https://www.youtube.com/watch?v=nCGmeoyImIs)
+
+Justin Bieber and Nicki Minaj - [Beauty And A Beat](https://youtu.be/Ys7-6_t7OEQ)
