@@ -678,3 +678,5 @@ Dax - [Dr. Dre ft. Eminem "Forgot About Dre" Remix](https://www.youtube.com/watc
 Justin Bieber and Nicki Minaj - [Beauty And A Beat](https://youtu.be/Ys7-6_t7OEQ)
 
 Jennifer Lopez and Pitbull - [On The Floor](https://www.youtube.com/watch?v=t4H_Zoh7G5A)
+
+Sean Kingston - [Beautiful Girls](https://youtu.be/S9J3K9UFm7E)
