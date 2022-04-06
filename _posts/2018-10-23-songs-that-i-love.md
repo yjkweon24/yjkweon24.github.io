@@ -404,6 +404,7 @@ Westlife - [If I let you go](https://www.youtube.com/watch?v=-RpYyxf9cdw)
 
 Backstreet Boys - [I Want It That Way](https://www.youtube.com/watch?v=4fndeDfaWCg)
 
+Hozier - [Take Me To Church](https://www.youtube.com/watch?v=PVjiKRfKpPI)
 <br>
 
 ## C
