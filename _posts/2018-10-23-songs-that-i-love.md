@@ -405,6 +405,12 @@ Westlife - [If I let you go](https://www.youtube.com/watch?v=-RpYyxf9cdw)
 Backstreet Boys - [I Want It That Way](https://www.youtube.com/watch?v=4fndeDfaWCg)
 
 Hozier - [Take Me To Church](https://www.youtube.com/watch?v=PVjiKRfKpPI)
+
+헤이즈 - [비가 오는 날엔](https://youtu.be/wq4HlLqYyRY)
+*[비스트](https://youtu.be/NY47mqz4yCg)
+
+멜로망스 - [고백](https://youtu.be/YRKR45rYoLg)
+
 <br>
 
 ## C
