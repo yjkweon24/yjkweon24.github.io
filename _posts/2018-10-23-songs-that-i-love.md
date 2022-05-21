@@ -415,6 +415,8 @@ Hozier - [Take Me To Church](https://www.youtube.com/watch?v=PVjiKRfKpPI)
 
 김광석 - [바람이 불어오는 곳](https://www.youtube.com/watch?v=a0KAnVgShAQ&ab_channel=chorongcho)
 
+씨엔블루(CNBLUE) - [외톨이야](https://www.youtube.com/watch?v=anlOHlMn41g&list=RDanlOHlMn41g&start_radio=1)
+
 <br>
 
 ## C
