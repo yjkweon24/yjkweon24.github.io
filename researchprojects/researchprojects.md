@@ -3,6 +3,16 @@ layout: default
 title: Research/Projects
 ---
 
+## Research under Professor Jun Ding (Sep 21 - Nov 201)
+
+Ongoing project
+
+Check out my CV for more details
+
+<br>
+
+<br>
+
 ## Research under Professor Jeff Xia (Jan 19 - May 19)
 
 [MultiOmicsAnalyst Website](https://www.multiomics.ca/)
