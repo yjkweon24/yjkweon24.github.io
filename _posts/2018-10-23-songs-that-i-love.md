@@ -704,3 +704,5 @@ Jennifer Lopez and Pitbull - [On The Floor](https://www.youtube.com/watch?v=t4H_
 Sean Kingston - [Beautiful Girls](https://youtu.be/S9J3K9UFm7E)
 
 Sean Kingston and Justin Bieber - [Eenie Meenie](https://www.youtube.com/watch?v=prmmCg5bKxA)
+
+Leah Kate - [10 Things I Hate About You](https://www.youtube.com/watch?v=-2cAyPpQRps&ab_channel=LeahKate)
