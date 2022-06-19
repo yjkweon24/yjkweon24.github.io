@@ -420,6 +420,8 @@ Hozier - [Take Me To Church](https://www.youtube.com/watch?v=PVjiKRfKpPI)
 
 Aaron Carter - [I'm All About You](https://www.youtube.com/watch?v=uESx0DhvYH0&ab_channel=AaronCarterVEVO)
 
+Naomi Scott - [Speechless](https://www.youtube.com/watch?v=mw5VIEIvuMI&list=RDFBS4ZFycjnM&index=10)
+
 <br>
 
 ## C
