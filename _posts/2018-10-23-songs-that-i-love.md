@@ -422,6 +422,8 @@ Aaron Carter - [I'm All About You](https://www.youtube.com/watch?v=uESx0DhvYH0&a
 
 Naomi Scott - [Speechless](https://www.youtube.com/watch?v=mw5VIEIvuMI&list=RDFBS4ZFycjnM&index=10)
 
+Imagine Dragons - [Bad Liar](https://www.youtube.com/watch?v=I-QfPUz1es8)
+
 <br>
 
 ## C
@@ -710,3 +712,5 @@ Sean Kingston - [Beautiful Girls](https://youtu.be/S9J3K9UFm7E)
 Sean Kingston and Justin Bieber - [Eenie Meenie](https://www.youtube.com/watch?v=prmmCg5bKxA)
 
 Leah Kate - [10 Things I Hate About You](https://www.youtube.com/watch?v=-2cAyPpQRps&ab_channel=LeahKate)
+
+Imagine Dragons and J.I.D - [Enemy](https://www.youtube.com/watch?v=D9G1VOjN_84)
