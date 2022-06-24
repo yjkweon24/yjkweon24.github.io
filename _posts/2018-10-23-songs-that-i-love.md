@@ -99,6 +99,8 @@ Bruno Mars - [It will rain](https://www.youtube.com/watch?v=W-w3WfgpcGg)
 
 Vanessa Hudgens - [When There Was Me and You (From "High School Musical")](https://www.youtube.com/watch?v=GTZUvuduWPk)
 
+Joji - [Glimpse of Us](https://youtu.be/Y7LuK1cbLK8)
+
 <br>
 
 ## B
