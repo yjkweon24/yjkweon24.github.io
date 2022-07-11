@@ -428,6 +428,8 @@ Imagine Dragons - [Bad Liar](https://www.youtube.com/watch?v=I-QfPUz1es8)
 
 NF - [Let you down](https://www.youtube.com/watch?v=0501BTnbrxg&list=RDMMY15MOr9saxE&index=22&ab_channel=NFVEVO)
 
+NF - [Time](https://www.youtube.com/watch?v=E1ZVSFfCk9g&ab_channel=NFVEVO)
+
 <br>
 
 ## C
