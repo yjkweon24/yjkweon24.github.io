@@ -722,3 +722,5 @@ Sean Kingston and Justin Bieber - [Eenie Meenie](https://www.youtube.com/watch?v
 Leah Kate - [10 Things I Hate About You](https://www.youtube.com/watch?v=-2cAyPpQRps&ab_channel=LeahKate)
 
 Imagine Dragons and J.I.D - [Enemy](https://www.youtube.com/watch?v=D9G1VOjN_84)
+
+iKON - [사랑을 했다(LOVE SCENARIO)](https://www.youtube.com/watch?v=vecSVX1QYbQ&list=RDMMY7LuK1cbLK8&index=27&ab_channel=iKON)
