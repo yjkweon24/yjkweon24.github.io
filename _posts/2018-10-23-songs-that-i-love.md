@@ -728,3 +728,13 @@ iKON - [사랑을 했다(LOVE SCENARIO)](https://www.youtube.com/watch?v=vecSVX1
 Lil Nas X and Billy Ray Cyrus - [Old Town Road](https://youtu.be/r7qovpFAGrQ)
 
 Pitbull and Chris Brown - [International Love](https://www.youtube.com/watch?v=CdXesX6mYUE&list=RDcSnkWzZ7ZAA&index=27&ab_channel=PitbullVEVO)
+
+Flo Rida and T-Pain - [Low](https://www.youtube.com/watch?v=U2waT9TxPU0&ab_channel=AtlanticRecords)
+
+Jennifer Lopez and Pitbull - [On The Floor](https://www.youtube.com/watch?v=t4H_Zoh7G5A&ab_channel=JenniferLopezVEVO)
+
+Justin Timberlake - [CAN'T STOP THE FEELING!](https://www.youtube.com/watch?v=ru0K8uYEZWw&ab_channel=justintimberlakeVEVO)
+
+Flo Rida and Ke$ha- [Right Round](https://www.youtube.com/watch?v=CcCw1ggftuQ&ab_channel=FloRida)
+
+Kid Ink, Tyga, Wale, YG, Rich Homie Quan - [Ride Out](https://www.youtube.com/watch?v=X7rdg_tKzKQ&ab_channel=AtlanticRecords)
