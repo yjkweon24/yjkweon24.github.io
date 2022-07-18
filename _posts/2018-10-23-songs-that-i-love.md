@@ -738,3 +738,5 @@ Justin Timberlake - [CAN'T STOP THE FEELING!](https://www.youtube.com/watch?v=ru
 Flo Rida and Ke$ha- [Right Round](https://www.youtube.com/watch?v=CcCw1ggftuQ&ab_channel=FloRida)
 
 Kid Ink, Tyga, Wale, YG, Rich Homie Quan - [Ride Out](https://www.youtube.com/watch?v=X7rdg_tKzKQ&ab_channel=AtlanticRecords)
+
+will.i.am and Britney Spears - [Scream & Shout](https://www.youtube.com/watch?v=kYtGl1dX5qI&list=RDCdXesX6mYUE&index=27)
