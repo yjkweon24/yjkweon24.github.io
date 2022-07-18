@@ -740,3 +740,5 @@ Flo Rida and Ke$ha- [Right Round](https://www.youtube.com/watch?v=CcCw1ggftuQ&ab
 Kid Ink, Tyga, Wale, YG, Rich Homie Quan - [Ride Out](https://www.youtube.com/watch?v=X7rdg_tKzKQ&ab_channel=AtlanticRecords)
 
 will.i.am and Britney Spears - [Scream & Shout](https://www.youtube.com/watch?v=kYtGl1dX5qI&list=RDCdXesX6mYUE&index=27)
+
+Young Thug, 2 Chainz, Wiz Khalifa and PnB Rock – [Gang Up](https://www.youtube.com/watch?v=ZvUBGN4KoP0&list=RDCdXesX6mYUE&index=13)
