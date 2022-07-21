@@ -754,3 +754,5 @@ Far East Movement, The Cataracs and DEV - [Like A G6](https://www.youtube.com/wa
 TheFatRat and Anjulie - [Fly Away](https://www.youtube.com/watch?v=cMg8KaMdDYo&ab_channel=TheFatRat)
 
 TheFatRat and Laura Brehm - [Monody](https://www.youtube.com/watch?v=B7xai5u_tnk&ab_channel=TheFatRat)
+
+TheFatRat, Slaydit & Anjulie - [Stronger](https://www.youtube.com/watch?v=gHgv19ip-0c&ab_channel=TheFatRat)
