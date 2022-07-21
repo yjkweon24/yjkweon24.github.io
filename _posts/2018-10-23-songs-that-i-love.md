@@ -436,6 +436,8 @@ TheFatRat and Laura Brehm - [We'll Meet Again](https://www.youtube.com/watch?v=h
 
 Brayke - [She Left](https://www.youtube.com/watch?v=l0VIK9pxfnw&ab_channel=Brayke)
 
+TheFatRat and Anjulie - [Close To The Sun](https://www.youtube.com/watch?v=qGYjWd58tGM&ab_channel=AirwaveMusicTV)
+
 <br>
 
 ## C
