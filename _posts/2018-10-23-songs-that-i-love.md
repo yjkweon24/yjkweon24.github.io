@@ -752,3 +752,5 @@ Young Thug, 2 Chainz, Wiz Khalifa and PnB Rock – [Gang Up](https://www.youtube
 Far East Movement, The Cataracs and DEV - [Like A G6](https://www.youtube.com/watch?v=w4s6H4ku6ZY&list=RDZvUBGN4KoP0&index=27)
 
 TheFatRat and Anjulie - [Fly Away](https://www.youtube.com/watch?v=cMg8KaMdDYo&ab_channel=TheFatRat)
+
+TheFatRat and Laura Brehm - [Monody](https://www.youtube.com/watch?v=B7xai5u_tnk&ab_channel=TheFatRat)
