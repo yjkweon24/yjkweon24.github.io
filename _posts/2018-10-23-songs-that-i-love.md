@@ -748,3 +748,5 @@ will.i.am and Britney Spears - [Scream & Shout](https://www.youtube.com/watch?v=
 Young Thug, 2 Chainz, Wiz Khalifa and PnB Rock – [Gang Up](https://www.youtube.com/watch?v=ZvUBGN4KoP0&list=RDCdXesX6mYUE&index=13)
 
 Far East Movement, The Cataracs and DEV - [Like A G6](https://www.youtube.com/watch?v=w4s6H4ku6ZY&list=RDZvUBGN4KoP0&index=27)
+
+TheFatRat and Anjulie - [Fly Away](https://www.youtube.com/watch?v=cMg8KaMdDYo&ab_channel=TheFatRat)
