@@ -758,3 +758,5 @@ TheFatRat and Laura Brehm - [Monody](https://www.youtube.com/watch?v=B7xai5u_tnk
 TheFatRat, Slaydit & Anjulie - [Stronger](https://www.youtube.com/watch?v=gHgv19ip-0c&ab_channel=TheFatRat)
 
 Juicy J, Wiz Khalifa, Ty Dolla $ign, Kill The Noise & Madsonik - [Shell Shocked](https://www.youtube.com/watch?v=BaACrT6Ydik&list=RDw4s6H4ku6ZY&index=20&ab_channel=AtlanticRecords)
+
+Tyga and Offset- [Taste](https://www.youtube.com/watch?v=LjxulQ1bEWg&list=RDGMEMHDXYb1_DDSgDsobPsOFxpAVMLjxulQ1bEWg&start_radio=1&ab_channel=TygaVEVO)
