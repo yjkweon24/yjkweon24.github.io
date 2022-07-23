@@ -760,3 +760,5 @@ TheFatRat, Slaydit & Anjulie - [Stronger](https://www.youtube.com/watch?v=gHgv19
 Juicy J, Wiz Khalifa, Ty Dolla $ign, Kill The Noise & Madsonik - [Shell Shocked](https://www.youtube.com/watch?v=BaACrT6Ydik&list=RDw4s6H4ku6ZY&index=20&ab_channel=AtlanticRecords)
 
 Tyga and Offset- [Taste](https://www.youtube.com/watch?v=LjxulQ1bEWg&list=RDGMEMHDXYb1_DDSgDsobPsOFxpAVMLjxulQ1bEWg&start_radio=1&ab_channel=TygaVEVO)
+
+Jessie J and B.o.B - [Price Tag](https://www.youtube.com/watch?v=qMxX-QOV9tI&list=WL&index=2&ab_channel=JessieJVEVO)
