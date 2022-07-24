@@ -762,3 +762,5 @@ Juicy J, Wiz Khalifa, Ty Dolla $ign, Kill The Noise & Madsonik - [Shell Shocked]
 Tyga and Offset- [Taste](https://www.youtube.com/watch?v=LjxulQ1bEWg&list=RDGMEMHDXYb1_DDSgDsobPsOFxpAVMLjxulQ1bEWg&start_radio=1&ab_channel=TygaVEVO)
 
 Jessie J and B.o.B - [Price Tag](https://www.youtube.com/watch?v=qMxX-QOV9tI&list=WL&index=2&ab_channel=JessieJVEVO)
+
+MACKLEMORE, RYAN LEWIS, WANZ - [THRIFT SHOP](https://www.youtube.com/watch?v=QK8mJJJvaes&list=RDGMEMHDXYb1_DDSgDsobPsOFxpAVMLjxulQ1bEWg&index=11&ab_channel=Macklemore)
