@@ -440,6 +440,8 @@ TheFatRat and Anjulie - [Close To The Sun](https://www.youtube.com/watch?v=qGYjW
 
 Soulja Boy Tell'em and Sammie - [Kiss Me Thru The Phone](https://www.youtube.com/watch?v=47Fbo4kU2AU&list=RDZvUBGN4KoP0&index=16)
 
+Lil Wayne, Wiz Khalifa & Imagine Dragons & Logic & Ty Dolla $ign ft X Ambassadors - [Sucker for Pain](https://www.youtube.com/watch?v=-59jGD4WrmE&list=RDZvUBGN4KoP0&index=27)
+
 <br>
 
 ## C
