@@ -766,3 +766,5 @@ Tyga and Offset- [Taste](https://www.youtube.com/watch?v=LjxulQ1bEWg&list=RDGMEM
 Jessie J and B.o.B - [Price Tag](https://www.youtube.com/watch?v=qMxX-QOV9tI&list=WL&index=2&ab_channel=JessieJVEVO)
 
 MACKLEMORE, RYAN LEWIS, WANZ - [THRIFT SHOP](https://www.youtube.com/watch?v=QK8mJJJvaes&list=RDGMEMHDXYb1_DDSgDsobPsOFxpAVMLjxulQ1bEWg&index=11&ab_channel=Macklemore)
+
+Imagine Dragons - [Whatever It Takes](https://www.youtube.com/watch?v=gOsM-DYAEhY)
