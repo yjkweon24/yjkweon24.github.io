@@ -770,3 +770,5 @@ Jessie J and B.o.B - [Price Tag](https://www.youtube.com/watch?v=qMxX-QOV9tI&lis
 MACKLEMORE, RYAN LEWIS, WANZ - [THRIFT SHOP](https://www.youtube.com/watch?v=QK8mJJJvaes&list=RDGMEMHDXYb1_DDSgDsobPsOFxpAVMLjxulQ1bEWg&index=11&ab_channel=Macklemore)
 
 Imagine Dragons - [Whatever It Takes](https://www.youtube.com/watch?v=gOsM-DYAEhY)
+
+Juicy J, Kevin Gates, Future & Sage the Gemini - [Payback](https://www.youtube.com/watch?v=SjCqQD-h3Q0)
