@@ -442,6 +442,8 @@ Soulja Boy Tell'em and Sammie - [Kiss Me Thru The Phone](https://www.youtube.com
 
 Lil Wayne, Wiz Khalifa & Imagine Dragons & Logic & Ty Dolla $ign ft X Ambassadors - [Sucker for Pain](https://www.youtube.com/watch?v=-59jGD4WrmE&list=RDZvUBGN4KoP0&index=27)
 
+Ellie Goulding - [Love Me Like You Do](https://www.youtube.com/watch?v=AJtDXIazrMo)
+
 <br>
 
 ## C
