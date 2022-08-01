@@ -776,3 +776,5 @@ Imagine Dragons - [Whatever It Takes](https://www.youtube.com/watch?v=gOsM-DYAEh
 Juicy J, Kevin Gates, Future & Sage the Gemini - [Payback](https://www.youtube.com/watch?v=SjCqQD-h3Q0)
 
 Tinie Tempah and Eric Turner - [Written In The Stars](https://www.youtube.com/watch?v=YgFyi74DVjc)
+
+John K - [Rum n Tequila](https://www.youtube.com/watch?v=zBf-fcPrhh0)
