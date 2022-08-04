@@ -780,3 +780,11 @@ Juicy J, Kevin Gates, Future & Sage the Gemini - [Payback](https://www.youtube.c
 Tinie Tempah and Eric Turner - [Written In The Stars](https://www.youtube.com/watch?v=YgFyi74DVjc)
 
 John K - [Rum n Tequila](https://www.youtube.com/watch?v=zBf-fcPrhh0)
+
+New Hope Club - [Start Over Again](https://www.youtube.com/watch?v=prBG1BX2INE)
+
+John K - [parachute](https://www.youtube.com/watch?v=wdcy-U01l3Q)
+
+John K - [cheap sunglasses](https://www.youtube.com/watch?v=ZbPir0si4so)
+
+New Hope Club, R3HAB - [Let Me Down Slow](https://www.youtube.com/watch?v=Q2x7i5xk2ZY)
