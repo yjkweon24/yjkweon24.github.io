@@ -787,4 +787,4 @@ John K - [parachute](https://www.youtube.com/watch?v=wdcy-U01l3Q)
 
 John K - [cheap sunglasses](https://www.youtube.com/watch?v=ZbPir0si4so)
 
-New Hope Club, R3HAB - [Let Me Down Slow](https://www.youtube.com/watch?v=Q2x7i5xk2ZY)
+New Hope Club - [Let Me Down Slow](https://www.youtube.com/watch?v=Q2x7i5xk2ZY)
