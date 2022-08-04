@@ -444,6 +444,8 @@ Lil Wayne, Wiz Khalifa & Imagine Dragons & Logic & Ty Dolla $ign ft X Ambassador
 
 Ellie Goulding - [Love Me Like You Do](https://www.youtube.com/watch?v=AJtDXIazrMo)
 
+Imagine Dragons - [Natural](https://www.youtube.com/watch?v=0I647GU3Jsc&list=RDGMEM6ijAnFTG9nX1G-kbWBUCJAVMM66U_DuMCS8&index=5)
+
 <br>
 
 ## C
