@@ -101,6 +101,8 @@ Vanessa Hudgens - [When There Was Me and You (From "High School Musical")](https
 
 Joji - [Glimpse of Us](https://youtu.be/Y7LuK1cbLK8)
 
+Sasha Alex Sloan - [Dancing With Your Ghost](https://www.youtube.com/watch?v=Qzc_aX8c8g4)
+
 <br>
 
 ## B
