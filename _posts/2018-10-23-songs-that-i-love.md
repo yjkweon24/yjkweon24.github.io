@@ -448,6 +448,8 @@ Ellie Goulding - [Love Me Like You Do](https://www.youtube.com/watch?v=AJtDXIazr
 
 Imagine Dragons - [Natural](https://www.youtube.com/watch?v=0I647GU3Jsc&list=RDGMEM6ijAnFTG9nX1G-kbWBUCJAVMM66U_DuMCS8&index=5)
 
+Charlie Puth - [Dangerously](https://www.youtube.com/watch?v=TBXQu8ORnBQ)
+
 <br>
 
 ## C
