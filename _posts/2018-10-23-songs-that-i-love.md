@@ -456,6 +456,8 @@ Juniel - [illa illa](https://www.youtube.com/watch?v=ht3ZL4vmUks)
 
 김조한 - [You are my girl](https://www.youtube.com/watch?v=iyH80FauBPE)
 
+Skylar Grey - [Everything I Need](https://www.youtube.com/watch?v=9thM5gLs2tg&ab_channel=WaterTowerMusic)
+
 <br>
 
 ## C
@@ -798,3 +800,7 @@ John K - [parachute](https://www.youtube.com/watch?v=wdcy-U01l3Q)
 John K - [cheap sunglasses](https://www.youtube.com/watch?v=ZbPir0si4so)
 
 New Hope Club - [Let Me Down Slow](https://www.youtube.com/watch?v=Q2x7i5xk2ZY)
+
+Tyga - [SWISH](https://www.youtube.com/watch?v=ScdQQfAjFTk&ab_channel=TygaVEVO)
+
+Tyga, Rich The Kid, G-Eazy - [Girls Have Fun](https://www.youtube.com/watch?v=Y-fqWMaXb8A&ab_channel=TygaVEVO)
