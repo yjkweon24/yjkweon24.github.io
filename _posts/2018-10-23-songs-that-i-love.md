@@ -458,6 +458,8 @@ Juniel - [illa illa](https://www.youtube.com/watch?v=ht3ZL4vmUks)
 
 Skylar Grey - [Everything I Need](https://www.youtube.com/watch?v=9thM5gLs2tg&ab_channel=WaterTowerMusic)
 
+Mina Okabe - [Every Second](https://www.youtube.com/watch?v=5zjTR7BVVBY&ab_channel=MinaOkabeVEVO)
+
 <br>
 
 ## C
