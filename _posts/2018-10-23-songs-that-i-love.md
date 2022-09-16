@@ -29,9 +29,9 @@ Eminem - [Stronger than I was](https://www.youtube.com/watch?v=iZtzWLoS60w)
 
 Eminem - [Legacy](https://www.youtube.com/watch?v=FF1hjJYuqXU)
 
-Soyou - [I miss you](https://www.youtube.com/watch?v=Ol2zQeX0pxY)
+Soyou 소유 - [I miss you](https://www.youtube.com/watch?v=Ol2zQeX0pxY)
 
-Davichi - [This love](https://www.youtube.com/watch?v=CtzT-Z5UUgA)
+Davichi 다비치 - [This love](https://www.youtube.com/watch?v=CtzT-Z5UUgA)
 
 Eminem - [Rock bottom](https://www.youtube.com/watch?v=h-3CmKofKTU)
 
@@ -464,6 +464,10 @@ Mina Okabe - [Every Second](https://www.youtube.com/watch?v=5zjTR7BVVBY&ab_chann
 *[허각](https://www.youtube.com/watch?v=aAHMKfHfxkY)
 
 Sia - [Unstoppable](https://www.youtube.com/watch?v=cxjvTXo9WWM)
+
+다비치 (DAVICHI) - [너에게 못했던 내 마지막 말은](https://www.youtube.com/watch?v=i-SBnhaZSSU)
+
+Davichi (다비치) - [Don't say Goodbye(안녕이라고 말하지마)](https://www.youtube.com/watch?v=CuwRqIzkyOQ)
 
 <br>
 
