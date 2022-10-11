@@ -827,3 +827,5 @@ Years & Years - [If You're Over Me](https://www.youtube.com/watch?v=niviooakBLs)
 Jack Harlow, Dababy, Tory Lanez, & Lil Wayne - [WHATS POPPIN](https://www.youtube.com/watch?v=HIwAI05Y1fU)
 
 WHY DON'T WE - [JUST FRIENDS](https://www.youtube.com/watch?v=vJF9kJxQpBY)
+
+Charlie Puth - [Loser](https://www.youtube.com/watch?v=Sp6BS-rSr98)
