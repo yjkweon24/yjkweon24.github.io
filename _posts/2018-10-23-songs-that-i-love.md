@@ -475,6 +475,8 @@ Charlie Puth - [I Don't Think That I Like Her](https://www.youtube.com/watch?v=9
 
 Christopher, CHUNG HA (크리스토퍼, 청하) - [When I Get Old](https://www.youtube.com/watch?v=Ua3aNDJE_Cg)
 
+Jamie Miller - [I Lost Myself In Loving You](https://youtu.be/DUv-r_OCoZo)
+
 <br>
 
 ## C
