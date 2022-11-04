@@ -477,6 +477,14 @@ Christopher, CHUNG HA (크리스토퍼, 청하) - [When I Get Old](https://www.y
 
 Jamie Miller - [I Lost Myself In Loving You](https://youtu.be/DUv-r_OCoZo)
 
+OneRepublic - [Secrets](https://www.youtube.com/watch?v=xWUTOqpm0iI)
+
+OneRepublic - [Someday](https://www.youtube.com/watch?v=pt2vZf5J5as)
+
+Jonas Blue annd Why Don't We - [Don’t Wake Me Up](https://www.youtube.com/watch?v=r7u7Lp13v88)
+
+OneRepublic - [Apologize](https://www.youtube.com/watch?v=F30px8QyFYE)
+
 <br>
 
 ## C
