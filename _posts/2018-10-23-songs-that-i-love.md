@@ -105,6 +105,8 @@ Sasha Alex Sloan - [Dancing With Your Ghost](https://www.youtube.com/watch?v=Qzc
 
 Adele - [Someone Like You](https://youtu.be/hLQl3WQQoQ0)
 
+John Legend - [All of Me](https://youtu.be/450p7goxZqg)
+
 <br>
 
 ## B
