@@ -103,6 +103,8 @@ Joji - [Glimpse of Us](https://youtu.be/Y7LuK1cbLK8)
 
 Sasha Alex Sloan - [Dancing With Your Ghost](https://www.youtube.com/watch?v=Qzc_aX8c8g4)
 
+Adele - [Someone Like You](https://youtu.be/hLQl3WQQoQ0)
+
 <br>
 
 ## B
