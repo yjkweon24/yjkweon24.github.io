@@ -107,6 +107,8 @@ Adele - [Someone Like You](https://youtu.be/hLQl3WQQoQ0)
 
 John Legend - [All of Me](https://youtu.be/450p7goxZqg)
 
+Benson Boone - [In the Stars](https://youtu.be/2n5GKLdrTfk)
+
 <br>
 
 ## B
