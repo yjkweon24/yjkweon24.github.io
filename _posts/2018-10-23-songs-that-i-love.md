@@ -491,8 +491,6 @@ Jonas Blue annd Why Don't We - [Don’t Wake Me Up](https://www.youtube.com/watc
 
 OneRepublic - [Apologize](https://www.youtube.com/watch?v=F30px8QyFYE)
 
-Jonas Blue and Why Don't We - [Don’t Wake Me Up](https://www.youtube.com/watch?v=r7u7Lp13v88)
-
 Alex Sampson - [Play Pretend](https://youtu.be/OXHWrI3rkFk)
 
 <br>
