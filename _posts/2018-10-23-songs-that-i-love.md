@@ -493,6 +493,8 @@ OneRepublic - [Apologize](https://www.youtube.com/watch?v=F30px8QyFYE)
 
 Alex Sampson - [Play Pretend](https://youtu.be/OXHWrI3rkFk)
 
+Peder Elias (ft. Hkeem) - [Loving You Girl](https://www.youtube.com/watch?v=uRiwZdMxnLU)
+
 <br>
 
 ## C
