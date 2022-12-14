@@ -861,3 +861,5 @@ OneRepublic - [Good Life](https://www.youtube.com/watch?v=lXPYzs2BgWg&list=RDlXP
 BoyWithUke, blackbear - [IDGAF](https://www.youtube.com/watch?v=Q1QcLbkYFaM&ab_channel=BoyWithUkeVEVO)
 
 OneRepublic - [I Ain’t Worried](https://www.youtube.com/watch?v=mNEUkkoUoIA&ab_channel=OneRepublicVEVO)
+
+Toploader - [Dancing in the Moonlight](https://youtu.be/0yBnIUX0QAE)
