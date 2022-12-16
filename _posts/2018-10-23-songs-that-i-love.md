@@ -495,6 +495,8 @@ Alex Sampson - [Play Pretend](https://youtu.be/OXHWrI3rkFk)
 
 Peder Elias (ft. Hkeem) - [Loving You Girl](https://www.youtube.com/watch?v=uZbB9DssRlA)
 
+Lukas Graham (feat. Khalid) - [Wish You Were Here](https://youtu.be/IYoxNx9qozo)
+
 <br>
 
 ## C
