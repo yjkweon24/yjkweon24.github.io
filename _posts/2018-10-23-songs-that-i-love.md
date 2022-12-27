@@ -501,6 +501,8 @@ Benson Boone - [GHOST TOWN](https://www.youtube.com/watch?v=gKHRpYiWiX4)
 
 League of Legends(ft. Against The Current) - [Legends Never Die](https://youtu.be/4Q46xYqUwZQ)
 
+Fall Out Boy - [Centuries](https://www.youtube.com/watch?v=LBr7kECsjcQ&ab_channel=FallOutBoyVEVO)
+
 <br>
 
 ## C
