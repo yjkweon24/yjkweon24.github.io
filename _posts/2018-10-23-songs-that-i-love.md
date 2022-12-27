@@ -499,6 +499,8 @@ Lukas Graham (feat. Khalid) - [Wish You Were Here](https://youtu.be/IYoxNx9qozo)
 
 Benson Boone - [GHOST TOWN](https://www.youtube.com/watch?v=gKHRpYiWiX4)
 
+League of Legends(ft. Against The Current) - [Legends Never Die](https://youtu.be/4Q46xYqUwZQ)
+
 <br>
 
 ## C
