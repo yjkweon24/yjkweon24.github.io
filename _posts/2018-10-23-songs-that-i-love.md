@@ -503,6 +503,8 @@ League of Legends(ft. Against The Current) - [Legends Never Die](https://youtu.b
 
 Fall Out Boy - [Centuries](https://www.youtube.com/watch?v=LBr7kECsjcQ&ab_channel=FallOutBoyVEVO)
 
+John K - [Guitars and Drugs](https://www.youtube.com/watch?v=p4tu0P4lebE&ab_channel=JohnKVEVO)
+
 <br>
 
 ## C
