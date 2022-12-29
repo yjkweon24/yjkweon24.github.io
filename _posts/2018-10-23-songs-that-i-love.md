@@ -505,6 +505,8 @@ Fall Out Boy - [Centuries](https://www.youtube.com/watch?v=LBr7kECsjcQ&ab_channe
 
 John K - [Guitars and Drugs](https://www.youtube.com/watch?v=p4tu0P4lebE&ab_channel=JohnKVEVO)
 
+Post Malone - [Wrapped Around Your Finger](https://www.youtube.com/watch?v=JXxAnZaZrG0&ab_channel=PostMaloneVEVO)
+
 <br>
 
 ## C
