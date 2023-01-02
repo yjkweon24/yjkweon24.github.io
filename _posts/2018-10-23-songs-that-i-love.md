@@ -507,6 +507,8 @@ John K - [Guitars and Drugs](https://www.youtube.com/watch?v=p4tu0P4lebE&ab_chan
 
 Post Malone - [Wrapped Around Your Finger](https://www.youtube.com/watch?v=JXxAnZaZrG0&ab_channel=PostMaloneVEVO)
 
+G-Eazy x Bebe Rexha - [Me, Myself & I](https://www.youtube.com/watch?v=bSfpSOBD30U&ab_channel=GEazyMusicVEVO)
+
 <br>
 
 ## C
