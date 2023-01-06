@@ -109,6 +109,8 @@ John Legend - [All of Me](https://youtu.be/450p7goxZqg)
 
 Benson Boone - [In the Stars](https://youtu.be/2n5GKLdrTfk)
 
+김장훈 - [친구여 friends](https://www.youtube.com/watch?v=70g8XACDLH8&ab_channel=KimJang-hoon-Topic)
+
 <br>
 
 ## B
@@ -877,3 +879,5 @@ BoyWithUke, blackbear - [IDGAF](https://www.youtube.com/watch?v=Q1QcLbkYFaM&ab_c
 OneRepublic - [I Ain’t Worried](https://www.youtube.com/watch?v=mNEUkkoUoIA&ab_channel=OneRepublicVEVO)
 
 Toploader - [Dancing in the Moonlight](https://youtu.be/0yBnIUX0QAE)
+
+Snoop Dogg, Eminem, Dr. Dre, DMX, Eve, Jadakiss, Ice Cube, Method Man, The Lox - [Back In The Game](https://www.youtube.com/watch?v=_Rks2oCRS88&ab_channel=LongBeachFinest)
