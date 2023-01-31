@@ -111,6 +111,8 @@ Benson Boone - [In the Stars](https://youtu.be/2n5GKLdrTfk)
 
 김장훈 - [친구여 friends](https://www.youtube.com/watch?v=70g8XACDLH8&ab_channel=KimJang-hoon-Topic)
 
+임재범 - [낙인](https://www.youtube.com/watch?v=tNf_TxjolbA)
+
 <br>
 
 ## B
