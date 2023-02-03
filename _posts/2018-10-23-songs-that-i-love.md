@@ -113,6 +113,8 @@ Benson Boone - [In the Stars](https://youtu.be/2n5GKLdrTfk)
 
 임재범 - [낙인](https://www.youtube.com/watch?v=tNf_TxjolbA)
 
+바이브, 장혜진 - [그남자 그여자](https://www.youtube.com/watch?v=EeMT7kKNOSE&ab_channel=%EB%8B%A4%EB%9D%BD%EB%B0%A9mp3)
+
 <br>
 
 ## B
