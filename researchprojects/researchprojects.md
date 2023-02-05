@@ -3,9 +3,9 @@ layout: default
 title: Research/Projects
 ---
 
-## Research under Professor Jun Ding (Sep 21 - Nov 201)
+## Research under Professor Jun Ding (Sep 21 - Nov 201. Jan 2023 -)
 
-Ongoing project
+Ongoing project on AI drug design using contrastive learning with VAE and cell-type deconvolution using single-cell spatial transcriptomics.
 
 Check out my CV for more details
 
@@ -78,4 +78,7 @@ To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-S
 
 [Report](https://github.com/yjkweon24/yjkweon24.github.io/raw/master/researchprojects/Jin1.pdf)
 
+<br>
+
+<br>
 To see more of my work, click [here](https://github.com/yjkweon24/Jin-Projects-Show-up/tree/main/Jin%20's(%EC%9A%A9%EC%A7%84)%20Projects/SWITCH%20project%20on%20Mexico)
