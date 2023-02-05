@@ -26,6 +26,9 @@
  
 * 강화학습의 수학적 기초와 알고리듬 이해 Maths and algorithms in reinforcement learning: [link](http://www.kmooc.kr/courses/course-v1:KoreaUnivK+ku_ai_002+2021_A24/course/) (audit) K-MOOC:: 정태수 | Korea University
  
+### c. chapter 3 
+* HGEN 670: Genomics for drug discovery and development
+
 <br>
 
 <br>
