@@ -517,6 +517,8 @@ G-Eazy x Bebe Rexha - [Me, Myself & I](https://www.youtube.com/watch?v=bSfpSOBD3
 
 Sam Smith, Kim Petras - [Unholy](https://www.youtube.com/watch?v=Uq9gPaIzbe8&ab_channel=SamSmithVEVO)
 
+거북이 - [빙고](https://www.youtube.com/watch?v=dRXqAYWZw_c)
+
 <br>
 
 ## C
@@ -893,3 +895,5 @@ Gnarls Barkley - [Crazy](https://www.youtube.com/watch?v=-N4jf6rtyuw)
 BoyWithUke - [Long Drives](https://www.youtube.com/watch?v=FIILsSmS_nA)
 
 Proctor – [Topher Mohr and Alex Elena](https://www.youtube.com/watch?v=FrVVLqmLXZ4)
+
+거북이 - [비행기](https://www.youtube.com/watch?v=dXQzwNb8G7g)
