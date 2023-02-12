@@ -519,6 +519,8 @@ Sam Smith, Kim Petras - [Unholy](https://www.youtube.com/watch?v=Uq9gPaIzbe8&ab_
 
 거북이 - [빙고](https://www.youtube.com/watch?v=dRXqAYWZw_c)
 
+The Score - [Fighter](https://www.youtube.com/watch?v=PpjdTwQwWWY&list=RDPpjdTwQwWWY&index=1)
+
 <br>
 
 ## C
