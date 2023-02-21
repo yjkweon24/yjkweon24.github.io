@@ -521,6 +521,8 @@ Sam Smith, Kim Petras - [Unholy](https://www.youtube.com/watch?v=Uq9gPaIzbe8&ab_
 
 The Score - [Fighter](https://www.youtube.com/watch?v=PpjdTwQwWWY&list=RDPpjdTwQwWWY&index=1)
 
+24kGoldn, sokodomo (Prod. BOYCOLD) - [SCAR](https://www.youtube.com/watch?v=uNFZ662p7aQ)
+
 <br>
 
 ## C
