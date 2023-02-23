@@ -911,3 +911,7 @@ John Newman - [Love Me Again](https://www.youtube.com/watch?v=CfihYWRWRTQ&list=R
 Miles Teller - [Great Balls of Fire remix (“Top Gun: Maverick”)](https://www.youtube.com/watch?v=pMiilK0Qb3A&list=RDMMpMiilK0Qb3A&start_radio=1)
 
 TWICE (트와이스) - [Heart Shaker](https://youtu.be/1H790yXB-_I)
+
+TWICE (트와이스) - [CHEER UP](https://youtu.be/sBMWSOizmmM)
+
+TWICE(트와이스) - [I CAN'T STOP ME"](https://youtu.be/jI08XaaXFH4)
