@@ -115,6 +115,8 @@ Benson Boone - [In the Stars](https://youtu.be/2n5GKLdrTfk)
 
 바이브, 장혜진 - [그남자 그여자](https://www.youtube.com/watch?v=EeMT7kKNOSE&ab_channel=%EB%8B%A4%EB%9D%BD%EB%B0%A9mp3)
 
+Anson Seabra - [That's Us](https://www.youtube.com/watch?v=6bXSNuMyEN4)
+
 <br>
 
 ## B
