@@ -117,6 +117,8 @@ Benson Boone - [In the Stars](https://youtu.be/2n5GKLdrTfk)
 
 Anson Seabra - [That's Us](https://www.youtube.com/watch?v=6bXSNuMyEN4)
 
+Loving Caliber - [I Let Your Smile Fade Away](https://www.youtube.com/watch?v=kb-C_GRKVz8)
+
 <br>
 
 ## B
