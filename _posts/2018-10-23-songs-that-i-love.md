@@ -533,6 +533,8 @@ The Score - [Fighter](https://www.youtube.com/watch?v=PpjdTwQwWWY&list=RDPpjdTwQ
 
 24kGoldn, sokodomo (Prod. BOYCOLD) - [SCAR](https://www.youtube.com/watch?v=uNFZ662p7aQ)
 
+Lil Nas X - [STAR WALKIN'](https://www.youtube.com/watch?v=HYsz1hP0BFo)
+
 <br>
 
 ## C
