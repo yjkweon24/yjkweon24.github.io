@@ -145,8 +145,6 @@ Nelly and Tim McGraw - [Over and over](https://www.youtube.com/watch?v=n3htOCjaf
 
 Eminem - [Cold wind blows](https://www.youtube.com/watch?v=c4Yz9o5UtN8)
 
-Eminem - [Still don't give a fuck](https://www.youtube.com/watch?v=y9FBhlL3NZE)
-
 Eminem - [Say goodbye hollywood](https://www.youtube.com/watch?v=PKvqIFTCVYw)
 
 Eminem - [8 mile](https://www.youtube.com/watch?v=-T5I__Jdl3w)
