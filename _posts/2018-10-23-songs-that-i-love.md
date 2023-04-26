@@ -935,3 +935,5 @@ Coi Leray - [Players](https://www.youtube.com/watch?v=mW8ATpWd5Wg) *[remix](http
 Unlike Pluto, Mike Taylor - [Everything Black](https://www.youtube.com/watch?v=mWKDZRJWdF4)
 
 Fall Out Boy - [The Last Of The Real Ones](https://www.youtube.com/watch?v=7YAAyUFL1GQ)
+
+Jonas Blue and Jack & Jack - [Rise](https://www.youtube.com/watch?v=btrzs54s1Rc&ab_channel=JonasBlueVEVO)
