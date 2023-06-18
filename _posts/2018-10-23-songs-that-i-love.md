@@ -537,6 +537,8 @@ Lil Nas X - [STAR WALKIN'](https://www.youtube.com/watch?v=HYsz1hP0BFo)
 
 The Weeknd - [The Hills](https://www.youtube.com/watch?v=yzTuBuRdAyA)
 
+Avicii - [Hey Brother](https://www.youtube.com/watch?v=6Cp6mKbRTQY&ab_channel=AviciiOfficialVEVO)
+
 <br>
 
 ## C
@@ -939,3 +941,5 @@ Unlike Pluto, Mike Taylor - [Everything Black](https://www.youtube.com/watch?v=m
 Fall Out Boy - [The Last Of The Real Ones](https://www.youtube.com/watch?v=7YAAyUFL1GQ)
 
 Jonas Blue and Jack & Jack - [Rise](https://www.youtube.com/watch?v=btrzs54s1Rc&ab_channel=JonasBlueVEVO)
+
+Avicii - [The Nights](https://www.youtube.com/watch?v=UtF6Jej8yb4&ab_channel=AviciiOfficialVEVO)
