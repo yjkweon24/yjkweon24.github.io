@@ -539,6 +539,10 @@ The Weeknd - [The Hills](https://www.youtube.com/watch?v=yzTuBuRdAyA)
 
 Avicii - [Hey Brother](https://www.youtube.com/watch?v=6Cp6mKbRTQY&ab_channel=AviciiOfficialVEVO)
 
+Alan Walker x Benjamin Ingrosso - [Man On The Moon](https://www.youtube.com/watch?v=1qrhnK6FGr0&ab_channel=AlanWalker)
+
+Imagine Dragons - [Follow You](https://www.youtube.com/watch?v=1DoI5WTjd3w&ab_channel=ImagineDragonsVEVO)
+
 <br>
 
 ## C
@@ -943,3 +947,5 @@ Fall Out Boy - [The Last Of The Real Ones](https://www.youtube.com/watch?v=7YAAy
 Jonas Blue and Jack & Jack - [Rise](https://www.youtube.com/watch?v=btrzs54s1Rc&ab_channel=JonasBlueVEVO)
 
 Avicii - [The Nights](https://www.youtube.com/watch?v=UtF6Jej8yb4&ab_channel=AviciiOfficialVEVO)
+
+Alan Walker - [The Drum](https://youtu.be/TicGJQqrq2M)
