@@ -949,3 +949,5 @@ Jonas Blue and Jack & Jack - [Rise](https://www.youtube.com/watch?v=btrzs54s1Rc&
 Avicii - [The Nights](https://www.youtube.com/watch?v=UtF6Jej8yb4&ab_channel=AviciiOfficialVEVO)
 
 Alan Walker - [The Drum](https://youtu.be/TicGJQqrq2M)
+
+American Authors - [I'm Born To Run](https://www.youtube.com/watch?v=qLshdZTgtLk&ab_channel=AmericanAuthorsVEVO)
