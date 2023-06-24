@@ -543,6 +543,8 @@ Alan Walker x Benjamin Ingrosso - [Man On The Moon](https://www.youtube.com/watc
 
 Imagine Dragons - [Follow You](https://www.youtube.com/watch?v=1DoI5WTjd3w&ab_channel=ImagineDragonsVEVO)
 
+LSD (Sia, Diplo, Labrinth) - [Genius](https://youtu.be/HhoATZ1Imtw) 
+
 <br>
 
 ## C
