@@ -547,6 +547,8 @@ LSD (Sia, Diplo, Labrinth) - [Genius](https://youtu.be/HhoATZ1Imtw)
 
 Woody (우디) - [사막에서 꽃을 피우듯](https://youtu.be/1py4QXyTQoU)
 
+정동하 - [추억은 만남보다 이별에 남아](https://youtu.be/_iP6_RAd9zY?si=9MOrvvHZQ3Mo94WP)
+
 <br>
 
 ## C
@@ -957,3 +959,5 @@ Alan Walker - [The Drum](https://youtu.be/TicGJQqrq2M)
 American Authors - [I'm Born To Run](https://www.youtube.com/watch?v=qLshdZTgtLk&ab_channel=AmericanAuthorsVEVO)
 
 French Montana, Swae Lee - [Unforgettable](https://www.youtube.com/watch?v=CTFtOOh47oo&ab_channel=FrenchMontanaVEVO)
+
+AKMU 악동 뮤지션 - [후라이의 꿈 (Fry’s Dream)](https://youtu.be/ZlDDiHK4tQM?si=7S6h6ieXTz9uwWEq)
