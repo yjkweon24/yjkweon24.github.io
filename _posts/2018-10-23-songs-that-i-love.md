@@ -967,3 +967,7 @@ American Authors - [I'm Born To Run](https://www.youtube.com/watch?v=qLshdZTgtLk
 French Montana, Swae Lee - [Unforgettable](https://www.youtube.com/watch?v=CTFtOOh47oo&ab_channel=FrenchMontanaVEVO)
 
 AKMU 악동 뮤지션 - [후라이의 꿈 (Fry’s Dream)](https://youtu.be/ZlDDiHK4tQM?si=7S6h6ieXTz9uwWEq)
+
+MOMOLAND (모모랜드) - [BBoom BBoom (뿜뿜)](https://youtu.be/JQGRg8XBnB4?si=0rqdyC6VoaSRw3PP)
+
+SISTAR(씨스타) - [SHAKE IT](https://youtu.be/x9-TIy7WPQI?si=URVq1WF9yx6ifNt2)
