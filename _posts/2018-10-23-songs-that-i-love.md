@@ -560,6 +560,10 @@ John Mayer - [New Light](https://youtu.be/mQ055hHdxbE?si=KKEVTj-QzMzUinxZ)
 
 Henry Moodie - [pick up the phone](https://youtu.be/aZDlaZCpKYw?si=rBT8gnUL6ViPq-P3)
 
+LANY - [dna](https://www.youtube.com/watch?v=EDOzUWDAeQA)
+
+Tom Grennan - [Don't Break the Heart](https://www.youtube.com/watch?v=k8CNPW-8G9w)
+
 <br>
 
 ## C
@@ -976,3 +980,7 @@ AKMU 악동 뮤지션 - [후라이의 꿈 (Fry’s Dream)](https://youtu.be/ZlDD
 MOMOLAND (모모랜드) - [BBoom BBoom (뿜뿜)](https://youtu.be/JQGRg8XBnB4?si=0rqdyC6VoaSRw3PP)
 
 SISTAR(씨스타) - [SHAKE IT](https://youtu.be/x9-TIy7WPQI?si=URVq1WF9yx6ifNt2)
+
+MAX, Joey Bada$$ - [Still New York](https://www.youtube.com/watch?v=8QvGfCOqSy8)
+
+
