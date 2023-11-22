@@ -564,6 +564,8 @@ LANY - [dna](https://www.youtube.com/watch?v=EDOzUWDAeQA)
 
 Tom Grennan - [Don't Break the Heart](https://www.youtube.com/watch?v=k8CNPW-8G9w)
 
+Anson Seabra - [Christmas List](https://www.youtube.com/watch?v=6mxfDARV9yw)
+
 <br>
 
 ## C
