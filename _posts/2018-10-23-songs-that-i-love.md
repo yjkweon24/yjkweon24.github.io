@@ -985,4 +985,4 @@ SISTAR(씨스타) - [SHAKE IT](https://youtu.be/x9-TIy7WPQI?si=URVq1WF9yx6ifNt2)
 
 MAX, Joey Bada$$ - [Still New York](https://www.youtube.com/watch?v=8QvGfCOqSy8)
 
-
+(여자)아이들((G)I-DLE) - [퀸카 (Queencard)](https://www.youtube.com/watch?v=AKg_9dn_VmA)
