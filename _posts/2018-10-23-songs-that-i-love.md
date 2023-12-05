@@ -566,6 +566,12 @@ Tom Grennan - [Don't Break the Heart](https://www.youtube.com/watch?v=k8CNPW-8G9
 
 Anson Seabra - [Christmas List](https://www.youtube.com/watch?v=6mxfDARV9yw)
 
+Charlie Puth - [That's Hilarious](https://youtu.be/Nq3x1AkwgpY?si=y_AyfbGaoi_ADXbj)
+
+Peder Elias - [Paper Plane](https://youtu.be/YbqZsvWC2lU?si=VP6doceX5oWp_D8e)
+
+elijah woods - [24/7, 365](https://www.youtube.com/watch?v=r8EVmdyJp-M)
+
 <br>
 
 ## C
@@ -986,3 +992,5 @@ SISTAR(씨스타) - [SHAKE IT](https://youtu.be/x9-TIy7WPQI?si=URVq1WF9yx6ifNt2)
 MAX, Joey Bada$$ - [Still New York](https://www.youtube.com/watch?v=8QvGfCOqSy8)
 
 (여자)아이들((G)I-DLE) - [퀸카 (Queencard)](https://www.youtube.com/watch?v=AKg_9dn_VmA)
+
+IVE 아이브 - [I AM](https://youtu.be/6ZUIwj3FgUY?si=okCIZlcL1VQYjbOq) 
