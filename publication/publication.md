@@ -15,10 +15,12 @@ Albouy, P., **<u>Kweon, Y.J.</u>**, Whittaker, H., Baillet, S., Zatorre, R.J. (
 
 # Publications
 
+Chenyu Liu, **Yong Jin Kweon**, Jun Ding (2023). [scBeacon: single-cell biomarker extraction via identifying paired cell clusters across biological conditions with contrastive siamese networks](https://arxiv.org/abs/2311.02594)
+
 <br>
 
 <br>
 
 # Acknowledgments
 
-Haber, J.R. (2020). Sorting Schools: A Computational Analysis of Charter School Identities and Stratification. Sociology of Education. https://doi.org/10.1177/0038040720953218
+Haber, J.R. (2020). [Sorting Schools: A Computational Analysis of Charter School Identities and Stratification. Sociology of Education](https://doi.org/10.1177/0038040720953218)
