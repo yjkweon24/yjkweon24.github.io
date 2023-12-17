@@ -576,6 +576,8 @@ Henry Moodie - [fight or flight](https://youtu.be/_HCLgIBvh3k?si=lEi6BKpg2m6gRij
 
 Henry Moodie - [you were there for me](https://www.youtube.com/watch?v=65ZRPTcxkWk)
 
+Ed Sheeran - [Eyes Closed](https://www.youtube.com/watch?v=u6wOyMUs74I)
+
 <br>
 
 ## C
