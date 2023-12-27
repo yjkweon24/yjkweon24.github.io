@@ -578,6 +578,8 @@ Henry Moodie - [you were there for me](https://www.youtube.com/watch?v=65ZRPTcxk
 
 Ed Sheeran - [Eyes Closed](https://www.youtube.com/watch?v=u6wOyMUs74I)
 
+Selena Gomez - [People You Know](https://www.youtube.com/watch?v=0SVaz8VWE84)
+
 <br>
 
 ## C
