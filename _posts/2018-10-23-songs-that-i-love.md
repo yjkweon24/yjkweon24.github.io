@@ -1002,3 +1002,7 @@ MAX, Joey Bada$$ - [Still New York](https://www.youtube.com/watch?v=8QvGfCOqSy8)
 (여자)아이들((G)I-DLE) - [퀸카 (Queencard)](https://www.youtube.com/watch?v=AKg_9dn_VmA)
 
 IVE 아이브 - [I AM](https://youtu.be/6ZUIwj3FgUY?si=okCIZlcL1VQYjbOq) 
+
+Tate McRae - [greedy](https://www.youtube.com/watch?v=NFZNGoHo2cw)
+
+Tyla - [Water](https://youtu.be/-DkJMa7QkGY?si=ahSrXMMpSD9CTKAm)
