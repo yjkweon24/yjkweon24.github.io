@@ -1006,3 +1006,5 @@ IVE 아이브 - [I AM](https://youtu.be/6ZUIwj3FgUY?si=okCIZlcL1VQYjbOq)
 Tate McRae - [greedy](https://www.youtube.com/watch?v=NFZNGoHo2cw)
 
 Tyla - [Water](https://youtu.be/-DkJMa7QkGY?si=ahSrXMMpSD9CTKAm)
+
+VIVIZ(비비지) - [MANIAC](https://youtu.be/BtXGQGNCtyo?si=DYcFoT0HgDprIfeQ)
