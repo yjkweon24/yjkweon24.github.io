@@ -582,6 +582,8 @@ Selena Gomez - [People You Know](https://www.youtube.com/watch?v=0SVaz8VWE84)
 
 Post Malone - [Overdrive](https://www.youtube.com/watch?v=hggjZ-FGGkw)
 
+G-Eazy & Halsey - [Him & I](https://www.youtube.com/watch?v=SA7AIQw-7Ms&ab_channel=GEazyMusicVEVO) 
+
 <br>
 
 ## C
