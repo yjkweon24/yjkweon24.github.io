@@ -1012,3 +1012,5 @@ Tate McRae - [greedy](https://www.youtube.com/watch?v=NFZNGoHo2cw)
 Tyla - [Water](https://youtu.be/-DkJMa7QkGY?si=ahSrXMMpSD9CTKAm)
 
 VIVIZ(비비지) - [MANIAC](https://youtu.be/BtXGQGNCtyo?si=DYcFoT0HgDprIfeQ)
+
+NEFFEX - [What You Gonna Be](https://youtu.be/kdYcG9l-fio?si=-yY5uh3O6d25l9B0)
