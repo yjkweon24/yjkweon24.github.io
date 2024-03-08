@@ -1014,3 +1014,11 @@ Tyla - [Water](https://youtu.be/-DkJMa7QkGY?si=ahSrXMMpSD9CTKAm)
 VIVIZ(비비지) - [MANIAC](https://youtu.be/BtXGQGNCtyo?si=DYcFoT0HgDprIfeQ)
 
 NEFFEX - [What You Gonna Be](https://youtu.be/kdYcG9l-fio?si=-yY5uh3O6d25l9B0)
+
+IVE 아이브 - [Kitsch](https://youtu.be/pG6iaOMV46I?si=cX95YMQnzRpEEX3O)
+
+IVE 아이브 - [I WANT](https://youtu.be/okVTSehE414?si=H2LW4dsRC66PomRq) 
+
+IVE 아이브 - [Off The Record](https://youtu.be/_ApV7Lm87cg?si=7ardwOjLC2pcE_6H)
+
+IVE 아이브 - [LOVE DIVE](https://youtu.be/Y8JFxS1HlDo?si=QulgCi5OLKZ9BxLD)
