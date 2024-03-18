@@ -588,6 +588,8 @@ Post Malone - [Overdrive](https://www.youtube.com/watch?v=hggjZ-FGGkw)
 
 G-Eazy & Halsey - [Him & I](https://www.youtube.com/watch?v=SA7AIQw-7Ms&ab_channel=GEazyMusicVEVO) 
 
+DK(디셈버) - [심(心)](https://youtu.be/ZbWooNg4IMo?si=RJOZXmvjbwpYlpAW) 
+
 <br>
 
 ## C
