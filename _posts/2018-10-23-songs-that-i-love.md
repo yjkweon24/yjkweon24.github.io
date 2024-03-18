@@ -129,6 +129,10 @@ Lana Del Rey - [Young and Beautiful](https://www.youtube.com/watch?v=o_1aF54DO60
 
 Lim Jae Hyun(임재현) - [If there was practice in love(사랑에 연습이 있었다면)](https://youtu.be/kXAvbHPdTZ0?si=l6_hmAbVEjs8h0D2)
 
+Lim Young Woong - [Love Always Run Away](https://youtu.be/LKQ-18LoFQk?si=5-e1pwObLNOnUdVD)
+
+임재범 Yim Jae Beum - [너를 위해](https://youtu.be/GiKvLl1V6mY?si=7v8GL57r-svArw5B)
+
 <br>
 
 ## B
@@ -583,8 +587,6 @@ Selena Gomez - [People You Know](https://www.youtube.com/watch?v=0SVaz8VWE84)
 Post Malone - [Overdrive](https://www.youtube.com/watch?v=hggjZ-FGGkw)
 
 G-Eazy & Halsey - [Him & I](https://www.youtube.com/watch?v=SA7AIQw-7Ms&ab_channel=GEazyMusicVEVO) 
-
-Lim Young Woong - [Love Always Run Away](https://youtu.be/LKQ-18LoFQk?si=5-e1pwObLNOnUdVD)
 
 <br>
 
