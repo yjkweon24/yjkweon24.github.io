@@ -1030,3 +1030,7 @@ IVE 아이브 - [Off The Record](https://youtu.be/_ApV7Lm87cg?si=7ardwOjLC2pcE_6
 IVE 아이브 - [LOVE DIVE](https://youtu.be/Y8JFxS1HlDo?si=QulgCi5OLKZ9BxLD)
 
 IVE 아이브 - [ELEVEN](https://youtu.be/e91HyUPLaMM?si=94pui7I3cC16RS3z)
+
+NEFFEX - [Fight Back No.37](https://youtu.be/CYDP_8UTAus?si=GE5EEkvpavodz1ax)
+
+NEFFEX - [Losing My Mind No.159](https://youtu.be/yUVeuSDCg6w?si=lfMIfZyYEF7f2sZy)
