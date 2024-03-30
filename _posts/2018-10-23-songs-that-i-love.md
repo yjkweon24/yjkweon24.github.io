@@ -1034,3 +1034,9 @@ IVE 아이브 - [ELEVEN](https://youtu.be/e91HyUPLaMM?si=94pui7I3cC16RS3z)
 NEFFEX - [Fight Back No.37](https://youtu.be/CYDP_8UTAus?si=GE5EEkvpavodz1ax)
 
 NEFFEX - [Losing My Mind No.159](https://youtu.be/yUVeuSDCg6w?si=lfMIfZyYEF7f2sZy)
+
+(여자)아이들((G)I-DLE) - [나는 아픈 건 딱 질색이니까(Fate)](https://youtu.be/ATK7gAaZTOM?si=ZkOAme7xckujIowX)
+
+규빈 (Gyubin) - [Really Like You](https://youtu.be/FkefRSxpuFk?si=c-79oFJ_9Aj1Lg4l)
+
+NEFFEX - [Soldier No.34](https://youtu.be/Ccsh_-Cucl4?si=QOy5vnSExE99ep2q)
