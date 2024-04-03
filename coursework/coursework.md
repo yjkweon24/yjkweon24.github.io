@@ -29,6 +29,8 @@
 ### c. chapter 3 
 * HGEN 670: Genomics for drug discovery and development
 
+* COMP 551: Applied Machine Learning
+* 
 <br>
 
 <br>
