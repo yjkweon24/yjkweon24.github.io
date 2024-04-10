@@ -592,6 +592,10 @@ DK(디셈버) - [심(心)](https://youtu.be/ZbWooNg4IMo?si=RJOZXmvjbwpYlpAW)
 
 NEFFEX - [Anxiety No.165](https://youtu.be/EgZ39cjAJuM?si=fW4A1dsgdHxt2nqc)
 
+Henry Moodie cover - [Viva la vida](https://youtu.be/1W3Sfoi5oFY?si=AItHyBhHX8Emm7Yw)
+
+Andy Grammer - [These tears](https://youtu.be/c3qO96QK3QE?si=h7tYx-Zc0engAZds)
+
 <br>
 
 ## C
