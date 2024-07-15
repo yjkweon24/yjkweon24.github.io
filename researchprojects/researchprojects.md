@@ -5,7 +5,7 @@ title: Research/Projects
 
 ## Research under Professor Jun Ding (Sep 21 - Nov 201. Jan 2023 -)
 
-Ongoing project on cell type deonvolution using single-cell and spatial trnascriptomics datasets.
+Ongoing project on cell type deonvolution using single-cell and spatial transcriptomics datasets.
 
 Check out my CV for more details
 
