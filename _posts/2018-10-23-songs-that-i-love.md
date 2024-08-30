@@ -601,6 +601,10 @@ GyeongseoYeji, Jeon Gunho(경서예지) - [If you lovingly call my name(다정�
 
 우디(Woody) - [Say I Love You](https://youtu.be/JEJGD9mIYQQ?si=fl_7ikhbMpkJh-d5)
 
+MC몽 and 효린 - [Turtle](https://youtu.be/7W7DyQpUPv0?si=F_-BVLaqRh0ZNf-M)
+
+MC몽 and JAMIE - [죽을 만큼 아파서](https://youtu.be/FdAIE6Z4S9k?si=PX6sPcVHzfa1CM-1)
+
 <br>
 
 ## C
