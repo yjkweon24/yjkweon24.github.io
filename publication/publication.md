@@ -4,7 +4,17 @@ title: Publications
 ---
 
 # Presentations
-  
+
+Samir Amin, Joshua Cheruvathur, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Sara Najmeh, Carmen Mueller, Jonathan Cools-Lartigue, Lorenzo Ferri, R. Trafford Crump. (2025). Rethinking Recovery Predictors in Esophageal Cancer Surgery. Fraser Gurd Day. Montreal, Canada, May. 29, 2025. 
+
+Nisha Suarez, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Lorenzo Ferri, Sara Najmeh, Carmen Mueller, Jonathan Cools-Latrigue, Jonathan Spicer, Trafford Crump. (2025). Improving preoperative emotional distress shortens hospitalization for esophagectomy. Celebration of Research and Training in Oncology (CORTO). Montreal, CA. May. 21, 2025. DOI: 10.17605/OSF.IO/A3ZDV
+
+Nisha Suarez, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Lorenzo Ferri, Sara Najmeh, Carmen Mueller, Jonathan Cools-Latrigue, Jonathan Spicer, Trafford Crump. (2025). Improving preoperative emotional distress shortens hospitalization for esophagectomy. Surgical and interventional Sciences (SIS) research day. Montreal, CA. May. 16, 2025. DOI: 10.17605/OSF.IO/A3ZDV 
+
+Nisha Suarez, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Lorenzo Ferri, Sara Najmeh, Carmen Mueller, Jonathan Cools-Latrigue, Jonathan Spicer, Trafford Crump. (2025). Testing the effect of changes in emotional distress on post-esophagectomy outcomes. European Society for Diseases of the Esophagus (ESDE) conference. Amsterdam, Netherlands, May. 11-12, 2025. DOI: 10.17605/OSF.IO/UWBN2      
+
+Samir Amin, Joshua Cheruvathur, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Sara Najmeh, Carmen Mueller, Jonathan Cools-Lartigue, Lorenzo Ferri, R. Trafford Crump. (2025). Rethinking Recovery Predictors in Esophageal Cancer Surgery. European Society for Diseases of the Esophagus (ESDE) conference. Amsterdam, Netherlands, May. 12, 2025. DOI: 10.17605/OSF.IO/QNHSE
+
 Albouy, P., Martinez-Moreno Z., **<u>Kweon, Y.J.</u>**, Zatorre, R.J., Baillet, S. (2018). Driving working memory with visual rhythmic stimulations. IDRC workshop. Montreal, Canada, Oct. 22 2018.
 
 Albouy, P., **<u>Kweon, Y.J.</u>**, Whittaker, H., Baillet, S., Zatorre, R.J. (2018). Enhancing learning-related plasticity with information based neuromodulation. Auditory learning and plasticity symposium. Montreal, Canada, Oct. 23 2018.
