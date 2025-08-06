@@ -25,6 +25,8 @@ Albouy, P., **<u>Kweon, Y.J.</u>**, Whittaker, H., Baillet, S., Zatorre, R.J. (
 
 # Publications
 
+Samir S. Amin, **Jin Kweon**, Joshua S. Cheruvathur, Mehrnoush Dehghani, Sara Najmeh, Carmen Mueller, Jonathan Cools-Lartigue, Lorenzo Ferri, R. Trafford Crump (2025). [Preoperative Quality-of-Life and Recovery Following Esophagectomy: Identifying Modifiable Factors Associated with Improvement](https://www.medrxiv.org/content/10.1101/2025.07.30.25332378v1)
+
 **Yong Jin Kweon**, Chenyu Liu, Gregory Fonseca, Jun Ding (2025). [DTractor enhances cell type deconvolution in spatial transcriptomics by integrating deep neural networks, transfer learning, and matrix factorization](https://www.biorxiv.org/content/10.1101/2025.04.12.648541v1)
 
 Chenyu Liu, **Yong Jin Kweon**, Jun Ding (2023). [scBeacon: single-cell biomarker extraction via identifying paired cell clusters across biological conditions with contrastive siamese networks](https://arxiv.org/abs/2311.02594)
