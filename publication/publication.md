@@ -29,7 +29,7 @@ Albouy, P., **<u>Kweon, Y.J.</u>**, Whittaker, H., Baillet, S., Zatorre, R.J. (
 
 # Publications
 
-**Yong Jin Kweon**, Yousif Salman, Shayan Dhillon, Mehrnoush Dehghani, Emad A. Mohammed,  R. Trafford Crump (2025). [Comparing Missing Data Imputation Methods for Patient-Reported Outcomes in Esophageal Cancer Research.] (https://www.medrxiv.org/content/10.1101/2025.09.10.25335531v1) 
+**Yong Jin Kweon**, Yousif Salman, Shayan Dhillon, Mehrnoush Dehghani, Emad A. Mohammed,  R. Trafford Crump (2025). [Comparing Missing Data Imputation Methods for Patient-Reported Outcomes in Esophageal Cancer Research.](https://www.medrxiv.org/content/10.1101/2025.09.10.25335531v1) 
 
 Samir S. Amin, **Jin Kweon**, Joshua S. Cheruvathur, Mehrnoush Dehghani, Sara Najmeh, Carmen Mueller, Jonathan Cools-Lartigue, Lorenzo Ferri, R. Trafford Crump (2025). [Preoperative Quality-of-Life and Recovery Following Esophagectomy: Identifying Modifiable Factors Associated with Improvement](https://www.medrxiv.org/content/10.1101/2025.07.30.25332378v1)
 
