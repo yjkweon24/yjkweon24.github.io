@@ -5,6 +5,10 @@ title: Publications
 
 # Presentations
 
+Benjamin Tordjman, **<u>Jin Kweon</u>**, Nataliya Burban El Dirani, Mehrnoush Dehghani, Mathieu Rousseau, Carmen Mueller, Sara Najmeh, Jonathan Spicer, Jonathan Cools-Lartigue, Lorenzo Ferri, Trafford Crump. (2025). Evaluation of textbook outcomes and long-term prognosis following esophagectomy: a retrospective cohort study. International Society for Disease of the Esophagus (ISDE) World Congress. Brisbane, Australia. Sep. 18-20, 2025.
+
+Nisha Suarez, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Lorenzo Ferri, Sara Najmeh, Carmen Mueller, Jonathan Cools-Latrigue, Jonathan Spicer, Trafford Crump. (2025). Improving Pre-operative Emotional Distress Shortens Hospitalization for Esophagectomy. International Society for Disease of the Esophagus (ISDE) World Congress. Brisbane, Australia. Sep. 18-20, 2025.
+
 Samir Amin, Joshua Cheruvathur, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Sara Najmeh, Carmen Mueller, Jonathan Cools-Lartigue, Lorenzo Ferri, R. Trafford Crump. (2025). Rethinking Recovery Predictors in Esophageal Cancer Surgery. Fraser Gurd Day. Montreal, Canada, May. 29, 2025. 
 
 Nisha Suarez, **<u>Jin Kweon</u>**, Mehrnoush Dehghani, Lorenzo Ferri, Sara Najmeh, Carmen Mueller, Jonathan Cools-Latrigue, Jonathan Spicer, Trafford Crump. (2025). Improving preoperative emotional distress shortens hospitalization for esophagectomy. Celebration of Research and Training in Oncology (CORTO). Montreal, CA. May. 21, 2025. DOI: 10.17605/OSF.IO/A3ZDV
@@ -24,6 +28,8 @@ Albouy, P., **<u>Kweon, Y.J.</u>**, Whittaker, H., Baillet, S., Zatorre, R.J. (
 <br>
 
 # Publications
+
+**Yong Jin Kweon**, Yousif Salman, Shayan Dhillon, Mehrnoush Dehghani, Emad A. Mohammed,  R. Trafford Crump (2025). [Comparing Missing Data Imputation Methods for Patient-Reported Outcomes in Esophageal Cancer Research.] (https://www.medrxiv.org/content/10.1101/2025.09.10.25335531v1) 
 
 Samir S. Amin, **Jin Kweon**, Joshua S. Cheruvathur, Mehrnoush Dehghani, Sara Najmeh, Carmen Mueller, Jonathan Cools-Lartigue, Lorenzo Ferri, R. Trafford Crump (2025). [Preoperative Quality-of-Life and Recovery Following Esophagectomy: Identifying Modifiable Factors Associated with Improvement](https://www.medrxiv.org/content/10.1101/2025.07.30.25332378v1)
 
